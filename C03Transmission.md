@@ -2,7 +2,7 @@
 
 Dismantling his life had proven surprisingly easy.
 
-Stella had to leave to dismantle her own life. But when she left, he immediately started sending messages. There was no manual on how to do this, but he figured it out soon enough.
+Stella had to leave to dismantle her own life, knowing her conviction was equally inevitable. But when she left, James immediately started sending messages. There was no manual on how to do this, but he figured it out soon enough.
 
 James didn't like his boss, so he felt fine about sending him a detailed list of all the flaws in his management skills. The Watchers might intercept it, but since his boss was actually just a Thinker, they might let it slide.
 
@@ -20,7 +20,7 @@ There was still a remote chance that he could be released if he got to the top w
 
 But James knew the Destination had to be huge. Or at least, he realized, he thought he knew. The Perfects had Transmitted such a huge number of people that if they were all stuffed into a small world, they'd run out of room. But he didn't know. Maybe there were giant writhing piles of people, all clawing their way to get out.
 
-The thought disturbed him. Then Mom knocked on his bedroom door.
+The thought disturbed him, and he couldn't get it out of his head. Then Mom knocked on his bedroom door.
 
 He came out. "Yes?"
 
@@ -60,7 +60,7 @@ Before he could finish speaking she rubbed a strange pink powder on him, which b
 
 Why?
 
-The doctor didn't give a word, but eventually just said "Next!" The Watchers took him through the next doors.
+The doctor didn't say a word for the rest of his examination, but eventually just said "Next!" The Watchers took him through the next doors.
 
 He stood in a lengthy hallway full of walls with long, long drawers. Suddenly every nerve in him panicked. This was it. This was where---before he could bolt, they grabbed him and pulled him to an open drawer.
 
@@ -70,9 +70,9 @@ James couldn't move.
 
 "In!"
 
-He struggled, but then they struck him with a pain baton and he nearly fell unconscious. He clambered inside, and they shoved the drawer shut.
+He struggled, but then they struck him with a pain baton and he nearly whited out from the pain. He clambered inside, and they shoved the drawer shut.
 
-It was dark inside, and he had no idea what would happen, let alone when or how. He wouldn't scream, he told himself. He would wait, wait, wait.
+Inside was pitch-black, and he had no idea what would happen, let alone when or how. He wouldn't scream, he told himself. He would wait, wait, wait.
 
 Ten minutes, the doctor had said. They'd delay for ten minutes. He had ten minutes to get out of here. He reached in the darkness for a handle or latch---anything! But found only a grate in the way for air.
 

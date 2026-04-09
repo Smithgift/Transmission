@@ -18,7 +18,7 @@ They did not waste time. He heard his comm ding when arriving back at his distri
 
 > To James Algol
 >
-> You are scheduled for Transmission at 0900 at 2213-04-02, at the Teritary Transmission Center in Shaft 14. Herein fail not.
+> You are scheduled for Transmission at 0900 at 2213-04-02, at the Tertiary Transmission Center in Shaft 14. Herein fail not.
 >
 > Johnson R
 > Transmission Scheduler.
@@ -29,9 +29,9 @@ What the nork was the point of all this? he wondered. The Perfects were supposed
 
 But there was no use thinking about it. It would cease mattering to him very soon, unless there were Perfects in the Other Worlds.
 
-He thought about trying to track down Stella, but he doubted he could. They lived in different districts, and only met because they had been assigned to the same project. She designed the machines, he put them together and fixed them. It had gone on from there.
+He thought about trying to track down Stella, but he doubted he could. They lived in different districts, and only met because they had been assigned to the same project. She designed the machines, he put them together and fixed them. It had grown from there.
 
-But now they were going to be separated. If he sent an email, he would be shocked if it _wasn't_ monitored. Not that the Watchers ever didn't, but now they had a reason to especially spy on him.
+But now they were going to be separated. If he sent her an email, he would be shocked if it _wasn't_ monitored. Not that the Watchers ever didn't, but now they had a reason to especially spy on him.
 
 He arrived at his domicile, hewn out of rock with a worn metal. If there was one advantage to living in the shafts, as opposed to the surface, it was that the domiciles for even the medium-class Workers were relatively big.
 
@@ -57,7 +57,7 @@ There were always a few crazies who tried to overthrow the system. But they neve
 
 But not for much longer, theoretically.
 
-He brought up the Troglopedia article on Transmission. The world that criminals and the very unwanted Unwanted were send to was less one world and more several worlds, stacked in a tower. But how to climb them, no one in this world knew except the Perfects. After all, if you reached the top... you would be released.
+He brought up the Troglopedia article on Transmission. The world that criminals and the very unwanted Unwanted were sent to was less one world and more several worlds, stacked in a tower. But how to climb them, no one in this world knew except the Perfects. After all, if you reached the top... you would be released.
 
 No one had ever managed it, according to the rumors that had been passed around. But if there had been, surely the Perfects would be celebrating, to prove that their strange system of reformation was effective as it was claimed.
 
@@ -81,7 +81,7 @@ They hurried to his room, and she pulled out a tablet. "There are eight worlds i
 
 "Yeah?"
 
-"There's some strange... system? The sources I have weren't clear. But involves numbers of some sort. I heard it described as a kind of really, _really_ strange RPG."
+"There's some strange... system? The sources I have weren't clear. But it involves numbers of some sort. I heard it described as a kind of really, _really_ strange RPG."
 
 James had enjoyed his share of games when not working, since they were free and even the Perfects would indulge in them from time to time. But perhaps they enjoyed them even more than an idle hobby? "What's strange about it?"
 
@@ -113,4 +113,4 @@ She shook her head. "There's a secret I can't even tell you. But for the moment,
 
 "Even if."
 
-They held each other.
+They held each other for a long time.
