@@ -1,4 +1,4 @@
-## Transmission
+## Sentence
 
 The phrase still hit him in the gut, even if he had expected it. The Perfect meanwhile, looked on with glee. The Perfects in the audience clapped at 'justice' being served.
 
