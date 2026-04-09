@@ -1,4 +1,6 @@
-## 
+# Transmission
+
+## The Trial
 
 His trial was brief.
 
@@ -20,7 +22,7 @@ The Perfect he had slapped stood up with a mixture of boredom and malicious plea
 
 James had also been minding his own business. He and Stella were walking down one of the shafts as they usually did. Plenty of room to be anonymous, away from prying eyes and the watchers, when taking the hard way down.
 
-Stella had a bonnet over her hair, which would normally have qualified as an Unwanted, but that was the brilliance of it. No one would object to him having some "fun" with an Unwanted, when in truth she was a high-class Thinker. Had they been seen together as their true ranks, one or both of them would be Transmitted with little question.
+Stella had a bonnet over her hair, which would normally have qualified her as an Unwanted, but that was the brilliance of it. No one would object to him having some "fun" with an Unwanted, when in truth she was a high-class Thinker. Had they been seen together as their true ranks, one or both of them would be Transmitted with little question.
 
 They sat down near the edge of the steep pit, watching the lifts go by. "I wonder how long the emergency will last," James said.
 
@@ -32,7 +34,7 @@ They sat down near the edge of the steep pit, watching the lifts go by. "I wonde
 
 They could never marry, and they were always tempted to go all the way. But the chance that things would go wrong and---
 
-"Oh, looky here," a voice with an audible sneer came from above. They looked up in shock to see a divine-class Perfect watching Stella with a leery. "I'll be taking her. You can have her afterwards."
+"Oh, looky here," a voice with an audible sneer came from above. They looked up in shock to see a divine-class Perfect watching Stella with a leer. "I'll be taking her. You can have her afterwards."
 
 "No," James said, standing up.
 
