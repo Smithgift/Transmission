@@ -81,19 +81,39 @@ They hurried to his room, and she pulled out a tablet. "There are eight worlds i
 
 "Yeah?"
 
-"There's some strange... system? The sources I have weren't clear. But it involves numbers of some sort. I heard it described as a kind of really, _really_ strange RPG."
+"There's some strange... system? The information my source had wasn't clear. But it involves numbers of some sort. I heard it described as a kind of really, _really_ strange RPG."
 
 James had enjoyed his share of games when not working, since they were free and even the Perfects would indulge in them from time to time. But perhaps they enjoyed them even more than an idle hobby? "What's strange about it?"
 
-"Apparently none of the systems actually make any sense. But the source I have refused to say one word more. He said he only told me because I was going to get Transmitted myself."
+"Apparently none of the systems actually make any sense. But my source refused to say one word more. He said he only told me because I was going to get Transmitted myself."
 
 "Huh," James said. "Maybe they want it to be a puzzle."
 
-"I don't know. Also, apparently you can't die for real. You just respawn---but you always respawn on the lowest world, and you don't get to keep a single thing from your earlier life."
+"I don't know. Also, apparently you can't die for real. You just respawn---but you always respawn on the first world."
 
 "Weird. I'd think it'd kill you for good if it was supposed to be a test."
 
-"I'd think so, too, but my source swore up and down that's how it worked. And..."
+"I'd think so, too, but my source swore up and down that's how it worked."
+
+"Did he tell you how many people?" James asked.
+
+"He didn't know the exact number, but he said maybe a tenth of them get to the next world. And if my estimates about the number of people they've Transmitted are correct, there must be millions on the first world alone. We..." she trailed off.
+
+"We'd never find each other down there, probably," James said. "Unless it's really cramped."
+
+Stella shook her head. "He said the first world is absolutely enormous. And when you die, you respawn somewhere at random."
+
+James thought about it. "We'd have to meet in a higher world."
+
+"Yeah, I thought that too. How about we both aim for the second world?"
+
+"Why not higher?" James asked.
+
+"I don't want to climb without you."
+
+James touched her hand, and she smiled.
+
+"And there's something..."
 
 "What?"
 
