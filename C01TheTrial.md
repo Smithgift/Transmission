@@ -22,7 +22,7 @@ The Perfect he had offended stood up with a mixture of boredom and malicious ple
 
 James had also been minding his own business. He and Stella were walking down the emergency stairs of Shaft 14 as they usually did. Plenty of room to be anonymous, away from prying eyes and the Watchers, when taking the hard way down. The rough walls held yellow molten-salt lamps, placed early in the Rebuilding and never replaced. They had built things to last, once upon a time, in a rejection of the ancient ways pre-Collapse. But then the Perfects had started raising the quotas.
 
-Stella had a bonnet over her Thinker-blond hair, which would normally have qualified her as an Unwanted, but that was the brilliance of it. No one would object to him having some "fun" with an Unwanted, when in truth she was a high-class Thinker. Had they been seen together as their true ranks, one or both of them would be Transmitted with little question. The Scale had to maintained at all costs, after all, lest the Rebuilding end in another Collapse.
+Stella had a bonnet over her Thinker-blond hair, which would normally have qualified her as an Unwanted, but that was the brilliance of it. No one would object to him having some "fun" with an Unwanted, when in truth it wasn't just "fun", and she was a high-class Thinker. Had they been seen together as their true ranks, one or both of them would be Transmitted with little question. The Scale had to maintained at all costs, after all, lest the Rebuilding end in another Collapse.
 
 They sat down near the edge of the steep pit, watching the lifts go by. "I wonder how long the emergency will last," James said.
 

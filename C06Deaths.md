@@ -8,13 +8,15 @@ No matter how often he respawned, he never saw any sign of human habitation. Not
 
 One life, James had had enough. The only way he seemed to make progress was to kill things. Typical RPG, right? Even if the instructions were not even written in Chinese.
 
-What he needed to do was fight these encounters, not just let them kill him over and over again. It would be hard. He'd probably die a few more times. Maybe many more times. But the alternative was sitting around waiting to be killed again. Either way, he'd be dead.
+Or were they? The Scale had required everyone to speak in English for maximum efficiency, but what if this was a different culture's system?
+
+It didn't matter. What he needed to do was fight these encounters, not just let them kill him over and over again. It would be hard. He'd probably die a few more times. Maybe many more times. But the alternative was sitting around waiting to be killed again. Either way, he'd be dead.
 
 Temporarily, but that was the problem with all this, he mused.
 
 Couldn't he at least knap some tools like a caveman? He took two rocks and banged them together until they started to crack. Evidentally the system allowed him to do this, since it didn't seem like he was prevented from shaping the knife as he wanted.
 
-Or at least as he tried, since he discovered he had no idea how to knap. Most of his rocks ended up shattering into pieces, and once he had a knife, he had no idea if it would even help.
+Or at least as he tried, since he discovered he had no idea how to knap. Most of his rocks ended up shattering into pieces, and once he had a sharp-ish knife, he had no idea if it would even help.
 
 He heard skittering, and grabbed the sharpest rock he had. It scrapped his finger, but no blood came out. He was still afraid---very afraid, but he knew this was one of the smaller crabs, not the certain death ones.
 
@@ -34,7 +36,7 @@ James had found that in his many, many deaths, the difference between the poison
 
 Usually about an hour or two into a life, he found himself hungry, especially if he had a brush with a weaker monster. But that one, he found a yellow bulb and ate it. They tasted literally like cardboard, but they filled his stomach pretty quickly. They also seemed to give a little experience. Most of all, they left strand of fiber behind, which had always stowed in his inventory.
 
-James knew he had to be missing something. Was there some way of using magic or inventing technology to help him survive? Or did the system simply kill people over and over again until they learned.
+James knew he had to be missing something. Was there some way of using magic or inventing technology to help him survive? Or did the system simply kill people over and over again until they learned?
 
 Probably, he grimly mused. This was just the Perfects' idea of a tutorial.
 

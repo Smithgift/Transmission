@@ -8,7 +8,7 @@ No one moved.
 
 "If you're angry about the Scale that sent you here, I got norked by it, too," she added. "Now before we all die of monsters, let's chop down _that_ tree."
 
-Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Lily stayed with Lucky, staring at her.
+Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Lily stayed with Lucky, staring at her in a mixture of concern and confusion.
 
 The tree crashed and shattered into logs. James picked up a log and dropped it in the fire. The fire turned a slightly different color, as if in confirmation of Lucky's words. An sweet scent came from the fire, and James relaxed a little.
 
@@ -76,6 +76,8 @@ Ralph shook his head again. "Glack, man. Never thought I'd sympathize with a Per
 
 "Sure. But how are they going to spread that knowledge in the Underneath? Say 'Oh, I knew this Perfect---no, really---and it turns out this thing that everyone thinks is actually dangerously false.'?"
 
+James thought about it. He _had_ heard that kind of story, hadn't he? And he'd dismissed it, too.
+
 "If there's danger, you need to tell us about it. *Now.*" Ralph ordered.
 
 "Sure. Let's all look at our destiny screen---you would call it the trees."
@@ -126,7 +128,7 @@ Lucky watched them all in silence. The fire crackled.
 
 "Same," James said.
 
-"As you wish. Before I was Transmitted, my mother paid... an obscene amount of money to a member of the Supreme Council," Lucky said. "An amount so huge it would make a material if small difference in whether we could repair Earth's surface. She wanted to know if anyone had ever come back."
+"As you wish. Before I was Transmitted, my mother paid... an obscene amount of money to a member of the Supreme Council," Lucky said. "An amount so huge it would make a material if small difference in whether we could Rebuild the surface of Earth. She wanted to know if anyone had ever come back."
 
 The campfire was deathly quiet.
 
@@ -149,5 +151,3 @@ Lily yawned. "Whatever's at the top, we're not climbing up there tonight. I vote
 "It's settled," Lucky said.
 
 They all got out their bed rolls and lay down---after putting one more log of that special tree into the fire.
-
-

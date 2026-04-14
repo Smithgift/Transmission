@@ -1,3 +1,4 @@
+## The Oru
 
 They only stopped when Lucky found one of her special trees. The strange stars shone over their campfire, and James found himself truly uncomfortable.
 
@@ -17,7 +18,9 @@ The campfire watched Lucky without a word.
 
 "Have you ever wondered what 'Transmission' means?" Lucky asked. "Where even the Tower of Worlds is? Why everything about this place is so strange?"
 
-"You said it's a culture not from this planet," James said.
+"You said it's a culture you didn't know," James said.
+
+"It's not from this planet, isn't it?" Lily asked.
 
 "If you mean 'Earth' that's correct. We are on an artificial world designed to simulate the homeworld of the Oru."
 
@@ -35,7 +38,7 @@ The campfire watched Lucky without a word.
 
 "Is it virtual?" James asked.
 
-"As far as we could tell, no. We only picked up their carrier wave when we found debris from one of their satellites near their homeworld."
+"As far as we could tell, no. We only picked up the Tower of Worlds'  carrier wave when we found debris from one of their satellites near their homeworld."
 
 "You're telling me the Perfects have interstellar travel?" Ralph said, shaking his head. "Unbelievable. But we're here."
 
@@ -63,7 +66,7 @@ Everyone raised hands, and then the tension that had started to brew dissipating
 
 "So what you're saying is all we know is this VRMMORPG," Ralph said, shaking his head. "That's all we have left."
 
-"That's Theory A," Lucky said. "But let's examine our assumptions. We are assuming that this is a game. Why would it be? It's very painful to play, literally, and it's extremely hard. Furthermore, to play it, you have to be dissolved into something we don't understand and shoved to some server in some place we have no idea where, and then you can't go back except by winning. Even if we knew what that process was, wouldn't you be skeptical that you might not exist afterwards?"
+"That's Theory A," Lucky said. "But let's examine our assumptions. We are assuming that this is a game. Why would it be? It's very painful to play, literally, and it's extremely hard. Furthermore, to play it, you have to be dissolved into something we don't understand and shoved to some system in some place we have no idea where, and then you can't go back except by winning. Even if we knew what that process was, wouldn't you be skeptical that you might not exist afterwards?"
 
 "I feel pretty extant myself," Stella said. "But not going to lie, I've wondered how I can be the same Stella Cobol that got sent out. What happened to my..." she trailed off.
 

@@ -56,7 +56,7 @@ James opened it up. That bar could only be the same one he thought had been expe
 
 James realized how little he knew about any of the systems. That 'experience' bar had grown as he had gotten hurt, and eventually killed him.
 
-"Also, we have a few rules here," the quartermaster said. "No fighting. No stealing. No cheating on your partner. All loot must go to me for proper credit. And obey the words of the Tribe Leader or Tribe Officers without question in combat or emergency settings. That's it."
+"Also, we have a few rules here," the quartermaster said. "No fighting. No stealing. No cheating on your partner. Everyone must work. All loot must go to me for proper credit. And obey the words of the Tribe Leader or Tribe Officers without question in combat or emergency settings. That's it."
 
 "You seem to be prepared for people joining and leaving all the time," James said.
 

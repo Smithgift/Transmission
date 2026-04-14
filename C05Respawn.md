@@ -18,11 +18,11 @@ Each of his right hand's fingers gave a different screen. None of them gave any 
 
 His pinky accessed a giant sixteen by sixteen grid of squares. He assumed this was some kind of inventory, though how to get anything in or out, he hadn't a clue.
 
-His ring finger accessed an stranger screen, like a series of symbols in eight colored spheres attached by lines. They looked vaguely like a constellation, but of stars that did not exist. There was also a large grey square with no apparent purpose.
+His ring finger accessed an stranger screen, like a series of symbols in eight colored spheres attached by lines, a field of stars. He saw constellations, but he knew none of them. There was also a large grey square with no apparent purpose.
 
 His middle finger showed a very large empty grey square, with what appeared to be buttons, but none of them did anything.
 
-His index once again gave the screen with only symbols, but on closer look some were repeated. It was anyone's guess what they meant.
+His index once again gave the screen with only symbols, but on closer look some symbols were repeated. It was anyone's guess what they meant.
 
 His thumb, however, opened the strangest screen: two trees, one large and black, one white but little more than a sapling. Neither looked like any species he had heard of.
 

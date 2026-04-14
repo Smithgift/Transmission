@@ -2,7 +2,7 @@
 
 "If that was the problem, why not start with that?" Ralph said. "Why all the backstory?"
 
-"Because the nature of the backstory leads to the problem. From what we've gathered, the Oru believed in various forms of one-way communication with the dead. You paid a kind of shaman or witch-doctor, or perhaps priest would be more accurate, to offer sacrifices to the dead, that would increase their _arete._ Or, if you hated the decedent, you could pay a priest, possibly even the same priest, to curse him by increasing his _hamartia._ With this in mind, check out your trees."
+"Because the nature of the backstory leads to the problem. From what we've gathered, the Oru believed in various forms of communication with the dead. You paid a kind of shaman or witch-doctor, or perhaps priest would be more accurate, to offer sacrifices to the dead, that would increase their _arete._ Or, if you hated the decedent, you could pay a priest, possibly even the same priest, to curse him by increasing his _hamartia._ With this in mind, check out your trees."
 
 Everyone checked. All their *hamartia*-trees had grown rapidly, but Stella's and James had skyrocketed.
 
@@ -14,7 +14,7 @@ James felt himself chill. "All this time. We've all been watched, like some kind
 
 "Exactly," Lucky said. "They've been watching me in particular. Every single moment. No matter what awful thing was happening to me, they had a front-row seat."
 
-James realized Stella wasn't there when Lucky had mentioned the basic details. But by the horrorified expression, she had to have figured it out. "How awful. And they're watching both James and I, correct?"
+James realized Stella wasn't there when Lucky had mentioned the basic details. But by the horrified expression, she had to have figured it out. "How awful. And they're watching both James and I, correct?"
 
 "If you ticked off a Perfect, they've got a system rigged to watch your every move. We based the Watchers' survellience systems off the technology. Every incident. Every decision. Every moment. Catalogued for review and enjoyment. And if there's any dull periods, they can summon monsters."
 
@@ -66,7 +66,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 The tension dissipated as they all nodded their heads.
 
-"I have so many questions about... religion," Stella said.
+"I have so many questions about... things I've come across," Stella said.
 
 "We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. Our _hamartia_ is so high that we could get jumped by monsters even with the incense logs."
 

@@ -4,7 +4,7 @@ He woke up with a massive headache, and for the briefest moment wondered if he w
 
 That, and the blue glow all around him. He lay in some kind of rough-walled cave, where biolumincent blue moss grew on the various surfaces or strange flowers showed white bulbs. The drip of distant water comforted him, and he felt strangely alive, as if newly born.
 
-James sat up, and held his forehead. Definitely still alive. Wherever this place was.
+James sat up, and held his forehead. The warm smoothness felt the same as it ever did. Definitely still alive. Wherever this place was.
 
 He got up and gingerly touched the moss. It shone in brighter blue when he touched it. He tapped it a few more times and it flashed, then got bored and moved on.
 
@@ -26,7 +26,7 @@ He continued to wander. Maybe he would encounter some kind of human inhabitation
 
 That implied he could nonetheless die for fake.
 
-James sat down on a rock and, suddenly, the emotions he had been holding back crushed down on him. He was stranded here, apparently alone, and he would never see Mom or Stella again. He would never play a game or watch a show on his comm again. He would never... He found himself crying, but nothing came out. No water touched his nose. He reached to wipe it, but brushing his nose suddenly a grey page of text appeared before his eyes.
+James sat down on a rock and, suddenly, the emotions he had been holding back crushed down on him. He was stranded here, apparently alone, and he might never see Mom or Stella again. He would never play a game or watch a show on his comm again. He would never... He found himself crying, but nothing came out. No water touched his nose. He reached to wipe it, but brushing his nose suddenly a grey page of text appeared before his eyes.
 
 It just wasn't in English.
 
@@ -45,6 +45,3 @@ It advanced, and he ran shrieking, ran as fast as he feet could carry him. But i
 The crab monster advanced, gleaming, serrated claws at the ready. His fight or flight turned to _fight_ and he charged at it screaming and tried to flail on it. It tore into him, and he fainted in pain, then it---
 
 Then he was floating in space.
-
-
-

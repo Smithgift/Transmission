@@ -42,7 +42,7 @@ The party continued to banter and bicker as they took seemingly random turns thr
 
 "You didn't realize that that's where the monsters are less dangerous?" Jake asked.
 
-James hit his fae, and had to cancel out of the screens.
+James hit his face, and had to cancel out of the screens.
 
 "Hey, chill," the Thinker said. "We were all newts once."
 
