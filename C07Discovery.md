@@ -1,8 +1,12 @@
 ## Discovery
 
-James wondered, when he woke up again, whether it was all a cruel joke. Maybe there was no other worlds, maybe there was just constantly being murdered over and over again by the monsters. An eternal punishment, never to cease.
+James wondered, when he floated in space again, whether it was all a cruel joke. Maybe there was no other worlds; maybe there was just constantly being murdered over and over again by the monsters. An eternal punishment, never to cease.
 
 What had killed him, just as he was about to level up? Unless it was a cruel joke, and he just would suffer---No. No, Stella would not want him to give up. She would want him to find her. And then they could be together.
+
+* * *
+
+He woke with another massive headache, still in a cave.
 
 James got up, brushed himself off, and wondered why he always respawned with a hospital gown. At least he had gotten a bare idea of what to do: knap rocks, kill monsters, find those yellow pulp plants, and maybe, somehow, find something to be used as a stick. He knew he could create a spear, he just needed to---
 
