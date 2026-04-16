@@ -12,13 +12,13 @@ He still floated in space. Was this was what death felt like? Would it have been
 
 He was in another cave, in an untouched hospital gown, alive. In fact, he felt incredibly alive, as if he had just been born.
 
-James sat up and rubbed his eyes, only for that incomprehensible screen to pop up again. He tried touching it again and found nothing. But if touching his eyes summoned it---he touched his eyes a few times and it shifted, then disappeared. At least he had something to experiment with.
+James sat up and rubbed his eyes, only for that incomprehensible screen to pop up again. He tried touching it again and found nothing. But if touching his eyes summoned it---he touched his eyes a few different ways and it shifted, then disappeared. At least he had something to experiment with.
 
 Each of his right hand's fingers gave a different screen. None of them gave any clue as to their purpose, though he started to have some guesses.
 
 His pinky accessed a giant sixteen by sixteen grid of squares. He assumed this was some kind of inventory, though how to get anything in or out, he hadn't a clue.
 
-His ring finger accessed an stranger screen, like a series of symbols in eight colored spheres attached by lines, a field of stars. He saw constellations, but he knew none of them. There was also a large grey square with no apparent purpose.
+His ring finger accessed an stranger screen, like a series of symbols in eight colored spheres attached by lines, in a field of stars. He saw constellations, but he knew none of them. There was also a large grey square with no apparent purpose.
 
 His middle finger showed a very large empty grey square, with what appeared to be buttons, but none of them did anything.
 
@@ -30,7 +30,7 @@ Touching his nose with his palm closed them. And his left hand didn't do anythin
 
 Now what?
 
-His thoughts were interrupted by skittering. He ran out a tunnel, only to find not one giant crab, but a swarm of much smaller crabs, now chasing after him. He screamed and ran, but tripped on a stone and fell. He struggled to climb out of their claws, but in a few minutes they had successfully dismembered.
+His thoughts were interrupted by skittering. He ran out a tunnel, only to find not one giant crab, but a swarm of much smaller crabs, now chasing after him. He screamed and ran, but tripped on a stone and fell. He struggled to climb out of their claws, but in a few minutes they had successfully dismembered him.
 
 * * *
 
@@ -44,7 +44,7 @@ Ah. This had to be some kind of crafting screen, right? He just didn't have anyt
 
 He had a mission now. He took a tunnel at random and wandered down it. He kept an ear out for any sign of those awful crabs, but nothing. Not a sound but the trickle of water and echoes from his footsteps
 
-He picked up everything in sight, in the hopes that he could find whatever the things were which he needed to make a spear. The moss he could scrape off, but it wouldn't go into his inventory. The bulbs of the plants did go in.
+He picked up everything in sight, in the hopes that he could find whatever the nork he needed to make a spear. The moss he could scrape off, but it wouldn't go into his inventory. The bulbs of the plants did go in.
 
 James kept wandering. He started to feel hunger, now, but what did he dare eat? Though, he bitterly mused, if he ate something poisonous, it wouldn't be the end of him.
 
@@ -56,7 +56,7 @@ When it bit him, James almost fainted from pain, but he _would not let it kill h
 
 James hurt all over, especially on his arm. But he discovered to his horror he _wasn't_ bleeding.
 
-No, where the snake had hurt him his body was simply glowing red. It hurt, but no blood came out. He sat there, transfixed, but noticed the red was slowly fading at the edges of the wound. It was probably healing.
+No, where the snake had hurt him his body was simply glowing red, the holes where the snake's fangs had bitten simply being missing. It hurt, but no blood came out. He sat there, transfixed, but noticed the red was slowly fading at the edges of the wound. It was probably healing.
 
 He stashed the snake's drops into his inventory, then checked out his other screens. His index-screen showed some bars growing up from the bottom that hadn't been there before. Ah. He must have gained experience. It might not last if every time he died it reset.
 

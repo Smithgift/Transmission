@@ -12,7 +12,9 @@ Maybe literally? The Scale had required everyone to speak in English for maximum
 
 It didn't matter. What he needed to do was fight these encounters, not just let them kill him over and over again. It would be hard. He'd probably die a few more times. Maybe many more times. But the alternative was sitting around waiting to be killed again. Either way, he'd be dead.
 
-Temporarily, but that was the problem with all this, he mused.
+Temporarily, but that was the problem with all this, he mused. If he didn't keep coming back from the dead, his death would finally put him out of pain.
+
+But Stella wouldn't want him to think that way. Not when she always had hope.
 
 Couldn't he at least knap some tools like a caveman? He took two rocks and banged them together until they started to crack. Evidentally the system allowed him to do this, since it didn't seem like he was prevented from shaping the knife as he wanted.
 
@@ -40,13 +42,13 @@ James knew he had to be missing something. Was there some way of using magic or 
 
 Probably, he grimly mused. This was just the Perfects' idea of a tutorial.
 
-But something struck him as odd nonetheless. He could understand if the Perfects had made the system a puzzle, or even deliberately incomprehensible. But it didn't seem even remotely like the games he knew, aside from the inventory and possibly the experience bar. Sure, why not make a puzzle? But if you did, why make the answer nonsensical, too?
+But something struck him as odd nonetheless. He could understand if the Perfects had made the system a puzzle, or even deliberately incomprehensible. But it didn't seem quite like the games he knew, aside from the inventory and possibly the experience bar. Sure, why not make a puzzle? But if you did, why make the answer nonsensical, too?
 
 He finished the last yellow bulb. He had a lot of the fibers now. He flipped through his inventory to find a symbol had lit up. Could he actually _do_ something now?
 
-James tapped it, and a glowing, ghostly yellow rope appeared in the air. Touching the rope-ghost did nothing. But taking out the fibers, he found they snapped into place when placed in the ghost. Emptying his inventory, he had made... a rope.
+James tapped it, and a glowing, ghostly yellow rope appeared in the air. Touching the rope-ghost did nothing. But taking out the fibers, he found they snapped into place when placed in the ghost. Emptying his inventory of fibers, he had made... a rope.
 
-Maybe about a meter, but progress. He checked his stats screen---as he now thought of it---to find his experience meter hadn't budged. Oh well. That would probably be too easy.
+Maybe about a meter, but progress. He checked his stats screen---as he now thought of it---to find his experience meter hadn't budged. Oh well. That would probably be too easy if he got experience from crafting stuff.
 
 Stowing his brand new rope back in his inventory, he realized he was missing one more piece for a spear, one that would make him survive: a long stick. But where could he find one? It would be a plant, he figured. He just needed to find one.
 
@@ -64,7 +66,7 @@ Yes! Another snake to kill. James knew that each would fill his experience bar a
 
 He found it in the next cave, slithering around. It reared as he saw it and he charged it screaming. Stab! Stab! Stab! He killed it quickly, but not before it covered him with two bites.
 
-He reached to put away his new loot, when he felt very, very tired. He lay on the ground. What now? He opened his stats screen to see he had filled the bar and then some. Was it time to level up...
+He reached to put away his new loot, when he felt very, very tired. He lay on the ground. What now? He opened his stats screen to see he had filled the red bar and then some. Was it time to level up...
 
 Level... up...
 
