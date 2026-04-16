@@ -1,4 +1,4 @@
-
+## Athena Perl
 
 They all stared at her.
 
@@ -34,7 +34,7 @@ James anger faltered, as if a tool that had slipped out of oil-slick hands.
 
 "And they Transmitted you?" Lily asked.
 
-"Yes. Mother argued against it, Father argued for it, my brothers were equally split. But I was going to marry someone from the Supreme Council, so it was them that cared about the bill of sale, so to speak."
+"Yes. Mother argued against it, Father argued for it, my brothers were equally split. But I was going to marry someone from the Supreme Council, so it was they who cared about the bill of sale, so to speak."
 
 "I never heard of this," James objected.
 
@@ -48,7 +48,7 @@ James stopped. Everything she was saying made sense. Did he still want to lash o
 
 "Nork," Ralph said, shaking his head. "To be honest, if I didn't know you were Lucky, I'd have... probably left you to die."
 
-"I _am_ Lucky," she said. "Before this, I was Athena Pearl. But people will listen to Lucky the Unwanted and they won't make her suffer, either."
+"I _am_ Lucky," she said. "Before this, I was Athena Perl. But people will listen to Lucky the Unwanted and they won't make her suffer, either."
 
 The campfire fell quiet.
 
@@ -104,7 +104,7 @@ They all looked at Lucky's white tree, which was enormous. "It gives you luck," 
 
 "What culture made this place?" James asked.
 
-"We don't know," Lucky said.
+"We don't know that much about them," Lucky said.
 
 "You don't _know?_"
 

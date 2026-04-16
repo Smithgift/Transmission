@@ -17,7 +17,7 @@ James fell silent. "But... what about the Trogs?"
 
 "We are not Trogs. We are a Hold. The Trogs engage in risks because they want to, and because the ores they find and mine are valuable enough for us to pay them in bluefruit and other cultivated plants. But they cannot survive without the massive harvests that only a Hold can produce."
 
-"The Hold could not survive without resources found outside, right?"
+"But the Hold could not survive without resources found outside, right?"
 
 "That is correct. Our relationship is symbiotic. But our relationship can only be symbiotic because we are managing the risks. You, James Algol, are currently a risk."
 

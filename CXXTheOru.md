@@ -18,7 +18,7 @@ The campfire watched Lucky without a word.
 
 "Have you ever wondered what 'Transmission' means?" Lucky asked. "Where even the Tower of Worlds is? Why everything about this place is so strange?"
 
-"You said it's a culture you didn't know," James said.
+"You said it was made by a culture you didn't understand," James said.
 
 "It's not from this planet, isn't it?" Lily asked.
 
@@ -38,7 +38,7 @@ The campfire watched Lucky without a word.
 
 "Is it virtual?" James asked.
 
-"As far as we could tell, no. We only picked up the Tower of Worlds'  carrier wave when we found debris from one of their satellites near their homeworld."
+"As far as we could tell, no. We only picked up the Tower of Worlds'  carrier wave when we found debris from one of the Oru satellites near their homeworld."
 
 "You're telling me the Perfects have interstellar travel?" Ralph said, shaking his head. "Unbelievable. But we're here."
 
@@ -56,7 +56,7 @@ The campfire watched Lucky without a word.
 
 "I don't know. I believe it had the first nanites on it that assembled a new satellite when provided with materials. But I don't know much more about the satellite than that. What I do know about is this place." Lucky tapped the ground next to her. "How many of you played games in your spare time?"
 
-Everyone raised hands, and then the tension that had started to brew dissipating.
+Everyone raised hands, and then the tension that had started to brew started dissipating instead.
 
 "James. What was your favorite game on Earth?"
 

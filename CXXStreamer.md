@@ -54,7 +54,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Then the only safe option for Stella and I is to get to the fourth world," James said. "And you, too, Lucky,"
 
-"I've been trying to get there for years for that very reason. But that said," she turned to Lily and Ralph. "Depending on what you do, the Perfects might take pity on you. If you turned on us right now."
+"I've been trying to get there for years for that very reason. But that said," she turned to Lily and Ralph. "Depending on what you do, the Perfects might take pity on you. If you turned on us right now..."
 
 "Nork, Lucky, you know I would never do that to you," Ralph said. "Not after you've been so honest with us about you even being a Perfect."
 
