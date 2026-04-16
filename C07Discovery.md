@@ -8,13 +8,13 @@ What had killed him, just as he was about to level up? Unless it was a cruel jok
 
 He woke with another massive headache, still in a cave.
 
-James got up, brushed himself off, and wondered why he always respawned with a hospital gown. At least he had gotten a bare idea of what to do: knap rocks, kill monsters, find those yellow pulp plants, and maybe, somehow, find something to be used as a stick. He knew he could create a spear, he just needed to---
+James got up, brushed himself off, and wondered why he always respawned with a hospital gown. Or why every death, he felt so alive. At least he had gotten a bare idea of what to do: knap rocks, kill monsters, find those yellow pulp plants, and maybe, somehow, find something to be used as a stick. He knew he could create a spear, he just needed to---
 
 He froze, because he heard not a slither nor a skitter, but voices. Human voices. Chatting away conversationally. "Yeah, I told him he was too dumb to make it. You'd think a Thinker would---"
 
 James couldn't hold it in any more. "Over here!" he shouted, the echo bouncing off the distant tunnels.
 
-He heard the voices speed up. "*Another* newt? Today must be their lucky day. Hey! Newt! Where are you?"
+He heard the voices speed up. "*Another* newt? Today must be our lucky day. Hey! Newt! Where are you?"
 
 "I don't know!" James called out. "I'm in a room, where---"
 

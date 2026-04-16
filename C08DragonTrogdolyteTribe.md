@@ -24,7 +24,7 @@ One large tent apparently held the quartermaster, as well as loads of crates. Th
 
 The quartermaster whistled to himself, digging through a crate. "Let me transfer," he said.
 
-James opened his inventory, and merged with the quartermaster as he had seen Jake do. The quartermaster transferred a shortsword, a spear, a complete set of clothing with sandals, a complete set of armor, and a ring. "We won't replace any of it if you lose it," the quartermaster said. "We had a string of petty thefts recently, but it stopped. Just hold on to your items, and put them in your inventory if you're not using them."
+James opened his inventory, and merged with the quartermaster as he had seen Jake do. The quartermaster transferred a shortsword, a spear, a complete set of clothing with sandals, a complete set of armor, and a ring. "We won't replace any of it if you lose it," the quartermaster said. "We had a string of petty thefts recently, but it stopped once we found the culprit. Just hold on to your items, and put them in your inventory if you're not using them."
 
 "Yes, sir," James said. "How much will this cost?"
 
@@ -36,7 +36,7 @@ James opened his inventory, and merged with the quartermaster as he had seen Jak
 
 "Where do I sleep?" James asked.
 
-"Just head over to the men's dormatory tent and find someone who doesn't snore to share a blanket with."
+"Just head over to the men's dormatory tent and find someone who doesn't snore to share a blanket with. Or, if you can't, just sleep."
 
 "...OK. And food?"
 
@@ -64,7 +64,7 @@ James realized how little he knew about any of the systems. That 'experience' ba
 
 "What _is_ a Trog Tribe?"
 
-"We travel the Underneath in a large nomadic group, as opposed to the Holds, which stay in place, or the Wanderers, who travel from Hold to Hold small groups. If you want to switch from one to another, you can. We're all in this together, you see."
+"We travel the Underneath in a large nomadic group, as opposed to the Holds, which stay in place, or the Wanderers, who travel from Hold to Hold in small groups. If you want to switch from one to another, you can. We're all in this together, you see."
 
 James felt his whole body relax of a tension he didn't realize he had been carrying. He had expected a bunch of competing groups fighting each other for resources. But in fact it seemed that the groups didn't fight each other, or at least had some kind of truce. It wasn't every man for himself. It was every man for every man.
 
