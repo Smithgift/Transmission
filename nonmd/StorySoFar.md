@@ -13,6 +13,8 @@ The story so far:
 
 Chapter 1: James is tried for the grievous sin of slapping a Perfect in the face, after the Perfect had attempted to take Stella. He is sentenced to Transmission.
 
-Chapter 2: We learn more about the world. Stella tells James that she'll be Transmitted, too, but she learned something about the Destination. There are eight worlds to climb, but death sends you back to a random place on first one, and the first world is enormous. Also, the Perfects know something about the Destination that Stella can't put into words. The two agree to meet up in the second world, so they can find each other.
+Chapter 2: We learn more about the world. Stella tells James that she'll be Transmitted, too, but she learned something about the Destination. There are eight worlds to climb, but death sends you back to a random place on first one. There's also some strange system there, one that makes no sense. Also, the Perfects know something about the Destination that Stella can't put into words. 
+
+The first world is enormous, filled of millions of people. The two agree to meet up in the second world, so they can find each other.
 
 Chapter 3: James heads to the Transmission center, where, strangely, the doctor rubs a very expensive nanobiotic healing solution on his arm. He attempts to escape, but they successfully Transmit him.
