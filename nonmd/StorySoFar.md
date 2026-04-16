@@ -4,4 +4,15 @@ I don't know when I'll get back to AWoGaF, and I realize I left at an awkward ti
 
 I have a bunch of ideas for it but not much written. I don't have a blurb. I don't even have a name yet. It _is_ a LitRPG, but beyond that, I don't know. Discovery!
 
+People you should know:
 
+James Algol: Our hero, an ordinary Worker Transmitted to another world.\
+Stella Cobol: James's forbidden Thinker girlfriend who, last he heard, was also going to be transmitted.\
+
+The story so far:
+
+Chapter 1: James is tried for the grievous sin of slapping a Perfect in the face, after the Perfect had attempted to take Stella. He is sentenced to Transmission.
+
+Chapter 2: We learn more about the world. Stella tells James that she'll be Transmitted, too, but she learned something about the Destination. There are eight worlds to climb, but death sends you back to a random place on first one, and the first world is enormous. Also, the Perfects know something about the Destination that Stella can't put into words. The two agree to meet up in the second world, so they can find each other.
+
+Chapter 3: James heads to the Transmission center, where, strangely, the doctor rubs a very expensive nanobiotic healing solution on his arm. He attempts to escape, but they successfully Transmit him.
