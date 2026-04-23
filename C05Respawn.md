@@ -50,7 +50,7 @@ James kept wandering. He started to feel hunger, now, but what did he dare eat? 
 
 His thoughts were interrupted by a slithering. His heart started thumping. He walked back down the tunnels, but the slithering grew louder.
 
-No. No, he would stay and fight. Every instinct in him told him to run, but he stood his ground. The slithering grew until a snake the size of a television slithered into view. It reared back, but James threw a rock at it. It hissed in pain, the rock leaving a glowy red mark, and then it charged.
+No. No, he would stay and fight. Every instinct in him told him to run, but he stood his ground. The slithering grew until a snake the size of his leg slithered into view. It reared back, but James threw a rock at it. It hissed in pain, the rock leaving a glowy red mark, and then it charged.
 
 When it bit him, James almost fainted from pain, but he _would not let it kill him!_ He wrestled and screamed and screamed and scraped and managed to get another rock out of his inventory. He bashed the snake over and over again until it was dead. It stopped moving, then disassembled into a skin, a pair of fangs, and some small pieces of meat.
 

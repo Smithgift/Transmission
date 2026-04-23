@@ -46,6 +46,8 @@ She cut him off with a kiss that took his breath away.
 
 * * *
 
+No. Stella was here, too. He had to keep going for her. No matter what it took.
+
 Couldn't he at least knap some tools like a caveman? He took two rocks and banged them together until they started to crack. Evidentally the system allowed him to do this, since it didn't seem like he was prevented from shaping the knife as he wanted.
 
 Or at least as he tried, since he discovered he had no idea how to knap. Most of his rocks ended up shattering into pieces, and once he had a sharp-ish rock, he had no idea if it would even help.
