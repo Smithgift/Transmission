@@ -16,6 +16,36 @@ Temporarily, but that was the problem with all this, he mused. If he didn't keep
 
 But Stella wouldn't want him to think that way. Not when she always had hope.
 
+* * *
+
+They had snuck out from the workshop, officially to discuss the working of machines in private. James didn't know if the others would narc on him, because if they did, he and Stella would be Transmitted without out question.
+
+But when they were together, it didn't matter. He just wanted to be with him. They sat on the rough rock floor and kissed. "James," Stella said. "I'm going to be reassigned, but I have an idea."
+
+James felt a pit in his stomach. He knew it couldn't last, especially when it was forbbiden, but... "Yeah?"
+
+Stella got out a bonnet, and he stared.
+
+"No one's going to object to a Worker playing around with an Unwanted," she said. "We'll meet somewhere---"
+
+"Emergency stairs on the shafts. No one goes there."
+
+"Yeah. There. And we'll do it when we're not needed elsewhere."
+
+James put his arm around her neck, and she leaned into him. James always marveled about how smooth girls' skins were, and how gentle their voices were. But Stella's was above all others.
+
+He reached for the hem of her shirt, but she pushed his hand away. "No. Not now."
+
+"Stella," James said. "We might _never_ have a chance to... do more than this."
+
+"James," she said. "There is _always_ hope. Things could change. Maybe we can find a way, somehow, somewhere, to be together."
+
+"But---"
+
+She cut him off with a kiss that took his breath away.
+
+* * *
+
 Couldn't he at least knap some tools like a caveman? He took two rocks and banged them together until they started to crack. Evidentally the system allowed him to do this, since it didn't seem like he was prevented from shaping the knife as he wanted.
 
 Or at least as he tried, since he discovered he had no idea how to knap. Most of his rocks ended up shattering into pieces, and once he had a sharp-ish rock, he had no idea if it would even help.
