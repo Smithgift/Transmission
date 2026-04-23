@@ -18,3 +18,11 @@ Chapter 2: We learn more about the world. Stella tells James that she'll be Tran
 The first world is enormous, filled with millions of people. The two agree to meet up in the second world, so they can find each other.
 
 Chapter 3: James heads to the Transmission center, where, strangely, the doctor rubs a very expensive nanobiotic healing solution on his arm. He attempts to escape, but they successfully Transmit him.
+
+Chapter 4: James is Transmitted to a mysterious cave, where he discovers the world comes with no tutorial, and the interface is in a language he doesn't recognize. A terrifying giant enemy crab appears and kills him immediately.
+
+Chapter 5: James respawns, and continues to explore the strange system. He discovers how to work his inventory, and realizes he might be able to craft a spear. After a battle with a snake, he discovers wounds don't draw blood, but simply turn the injured body part red. In the process of exploring further creepy stuff, he is summarily murdered by a troll.
+
+Chapter 6: After endless respawns, James considers giving up, but remembers Stella in a flashback. He experiments with crafting but finds he is not very good at it. But his improvised knife allows him to fill his "experience" meter in a battle with a snake, before he falls unconscious
+
+
