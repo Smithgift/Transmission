@@ -4,6 +4,8 @@ Dying got old fast. James's fourth, fifth, and sixth lives passed in a blur. The
 
 No matter how often he respawned, he never saw any sign of human habitation. Not that he lived long enough to ever explore for more than an hour or two before he was killed again.
 
+And each time he died, he checked his screens. The bars on his stats screen reset each time, and he never kept his inventory.
+
 * * *
 
 One life, James had had enough. The only way he seemed to make progress was to kill things. Typical RPG, right? Even if the instructions were written in Chinese.
