@@ -6,7 +6,7 @@ One large tent apparently held the quartermaster, as well as loads of crates. Th
 
 "Yes, please," James said.
 
-"Not much loot," Jake interrupted. He and the quartermaster opened up their inventories and touched them together. James watched, fascinated, as the quartermaster took some pieces of meat and yellow and blue bulbs. The quartermaster then wrote in a book. "See you," Jake said to James, then he and his party headed out.
+"Not much loot," Drake interrupted. He and the quartermaster opened up their inventories and touched them together. James watched, fascinated, as the quartermaster took some pieces of meat and yellow and blue bulbs. The quartermaster then wrote in a book. "See you," Drake said to James, then he and his party headed out.
 
 "Um, hi," James said. "I'm James."
 
@@ -24,7 +24,7 @@ One large tent apparently held the quartermaster, as well as loads of crates. Th
 
 The quartermaster whistled to himself, digging through a crate. "Let me transfer," he said.
 
-James opened his inventory, and merged with the quartermaster as he had seen Jake do. The quartermaster transferred a shortsword, a spear, a complete set of clothing with sandals, a complete set of armor, and a ring. "We won't replace any of it if you lose it," the quartermaster said. "We had a string of petty thefts recently, but it stopped once we found the culprit. Just hold on to your items, and put them in your inventory if you're not using them."
+James opened his inventory, and merged with the quartermaster as he had seen Drake do. The quartermaster transferred a shortsword, a spear, a complete set of clothing with sandals, a complete set of armor, and a ring. "We won't replace any of it if you lose it," the quartermaster said. "We had a string of petty thefts recently, but it stopped once we found the culprit. Just hold on to your items, and put them in your inventory if you're not using them."
 
 "Yes, sir," James said. "How much will this cost?"
 
@@ -52,7 +52,7 @@ James opened his inventory, and merged with the quartermaster as he had seen Jak
 
 James opened it up. That bar could only be the same one he thought had been experience. _"That's_ a wound meter?"
 
-"Yes, as you are injured it will go up as the system repairs your body. If it goes too high you die anyway. So if you're badly hurt, head to the hospital tent. It will cost you, but we'll always treat you."
+"Yes, as you are injured it will go up as the system repairs your body. If it goes too high you die. So if you're badly hurt, head to the hospital tent. It will cost you, but we'll always treat you."
 
 James realized how little he knew about any of the systems. That 'experience' bar had grown as he had gotten hurt, and eventually killed him.
 

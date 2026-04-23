@@ -1,4 +1,4 @@
-
+## Stella
 
 The Thinker looked up from her blueprint, saw James, and dropped everything to run to him. She crushed him in a hug. "James! I had thought---I had thought---"
 

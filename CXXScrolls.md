@@ -1,6 +1,6 @@
 
 
-"Oh, sweet," Jake told him. "That's a scroll."
+"Oh, sweet," Drake told him. "That's a scroll."
 
 "A scroll?" James asked, examining it.
 

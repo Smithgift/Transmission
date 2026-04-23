@@ -2,7 +2,7 @@
 
 "What are you doing here?" James asked.
 
-"Purifying metals. They make better weapons if they're specially enchanted," the Boss said. "I know, how does shoving a item through a machine make it enchanted? Beats me, but we can use"
+"Purifying metals. They make better weapons if they're specially enchanted," the Boss said. "I know, how does shoving a item through a machine make it enchanted? Beats me, but we can use it."
 
 "Here's where"
 

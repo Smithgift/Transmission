@@ -77,3 +77,13 @@ The tension dissipated as they all nodded their heads.
 "Previous _expeditions?_" James asked.
 
 "We can talk about it later. Right now, though, one of us needs to keep watch, and everyone should be sleeping in his armor tonight."
+
+* * *
+
+That night, Stella parked her sleeping bag next to James. "To think we had almost found happiness," she whispered.
+
+"Stupid dungpit Perfects."
+
+"James, revenge isn't going to make this better, even if it is legitimately their fault."
+
+"Why not?"
