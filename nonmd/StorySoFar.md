@@ -9,6 +9,13 @@ People you should know:
 James Algol: Our hero, an ordinary Worker Transmitted to another world.\
 Stella Cobol: James's forbidden Thinker girlfriend who, last he heard, was also going to be transmitted.\
 
+The Dragon Trogdolyte Tribe:
+
+Drake: an elite adventurer and party leader.\
+Kate: A Thinker with Drake's party.\
+Gus: A large and thoughtful worker in Drake's party.\
+Boris: the quartermaster of the Dragon Trog Tribe.
+
 The story so far:
 
 Chapter 1: James is tried for the grievous sin of slapping a Perfect in the face, after the Perfect had attempted to take Stella. He is sentenced to Transmission.
@@ -23,6 +30,12 @@ Chapter 4: James is Transmitted to a mysterious cave, where he discovers the wor
 
 Chapter 5: James respawns, and continues to explore the strange system. He discovers how to work his inventory, and realizes he might be able to craft a spear. After a battle with a snake, he discovers wounds don't draw blood, but simply turn the injured body part red. In the process of exploring further creepy stuff, he is summarily murdered by a troll.
 
-Chapter 6: After endless respawns, James considers giving up, but remembers Stella in a flashback. He experiments with crafting but finds he is not very good at it. But his improvised knife allows him to fill his "experience" meter in a battle with a snake, before he falls unconscious
+Chapter 6: After endless respawns, James considers giving up, but remembers Stella in a flashback. He experiments with crafting but finds he is not very good at it. But his improvised knife allows him to fill his "experience" meter in a battle with a snake, before he falls unconscious.
 
+Chapter 7: James wakes up to find he had died again, and lost everything. James is found by Drake and his party, who take him to the Dragon Trog Tribe. James learns he is a "newt", or Newly Transmitted, and this world is known as the Underneath.
 
+Chapter 8: James meets Boris, the quartermaster, and gets all sorts of rad gear as a member, although he is told that it's on credit. He learns that the humans of the Underneath have formed more or less three groups: the nomadic Trog Tribes, who wander the Underneath, the Holds that stay in place and the Wanderers, small parties that travel from Hold to Hold.
+
+James also learns that what he wrongly believed to be an experience meter is actually a wound meter.
+
+Chapter 9: James puts on the very strange clothing that seems to make no sense. He hangs out with Drake's party, who tell him what they know of the system screens. One finger accesses a screen that allows enchantment, which sometimes causes curses instead. But the thumb-trees have no explanation, and theories abound about how to make them grow or shrink. However, they are the one thing that carries between death-resets.
