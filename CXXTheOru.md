@@ -38,7 +38,7 @@ The campfire watched Lucky without a word.
 
 "Is it virtual?" James asked.
 
-"As far as we could tell, no. We only picked up the Tower of Worlds'  carrier wave when we found debris from one of the Oru satellites near their homeworld."
+"As far as we could tell, no. We only picked up the Tower of Worlds' carrier wave when we found debris from one of the Oru satellites near their homeworld."
 
 "You're telling me the Perfects have interstellar travel?" Ralph said, shaking his head. "Unbelievable. But we're here."
 
@@ -76,7 +76,7 @@ Everyone raised hands, and then the tension that had started to brew started dis
 
 "If you have a soul, you're clearly still in possession of it," Lucky said. "But we don't know this is a digital world either. Which brings me to Theory B: this isn't a game, but a kind of religious ritual. We know---or at least we think we know---that much like _Ragnarok Clash_, this world was based on ancient myths of the Oru. Their afterlife seemed to have eight worlds: seven where the spirit of the dead is tested, and one perfect world at the end where those with the most _arete_ dwell in happiness forever.
 
-"We assume this because the 'scrolls' that we causally use as magic appear to be small sections from Oru scriptures. From what we've deciphered, they're not instructions on how to play a game, but how to live life. The 'scroll' for 'reduce hunger' appears to be precepts on fasting.
+"We assume this because the 'scrolls' that we causally use as magic appear to be small sections from Oru scriptures. From what we've deciphered, they're not instructions on how to play a game, but how to live life. For example, the 'scroll' for 'reduce hunger' appears to be precepts on fasting.
 
 "We also assume this because there seems no reason to spend the immense amount of resources constructing this system, which is by some Theory B proponents to be a genuine bubble in hyperspace where physics follows alternate rules, unless doing so was absolutely critical to their culture.
 

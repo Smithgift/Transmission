@@ -10,12 +10,12 @@ The barmaid came up to them. "You're looking for someone?" she asked James.
 
 "Sure, why not?" Ralph said. "You've been good to us."
 
-"You do realize there's not a huge chance your girlfriend is up here," Lilly said.
+"You do realize there's not a huge chance your girlfriend is up here," Lily said.
 
 "I have to take it," James pleaded.
 
 "I said I'd go. Right, everyone?" Ralph said.
 
-"Right," Lilly said.
+"Right," Lily said.
 
 Lucky didn't seem super crazed about it. But she said "I'll go."

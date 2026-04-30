@@ -10,7 +10,7 @@ No one moved.
 
 Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Lily stayed with Lucky, staring at her in a mixture of concern and confusion.
 
-The tree crashed and shattered into logs. James picked up a log and dropped it in the fire. The fire turned a slightly different color, as if in confirmation of Lucky's words. An sweet scent came from the fire, and James relaxed a little.
+The tree crashed and shattered into logs. James picked up a log and dropped it in the fire. The fire turned a slightly different color, as if in confirmation of Lucky's words. An acrid but sweet scent came from the fire, and James relaxed a little.
 
 "You have a lot of explaining to do," Ralph said.
 
@@ -26,7 +26,7 @@ The tree crashed and shattered into logs. James picked up a log and dropped it i
 
 "Same here," Lucky said.
 
-James anger faltered, as if a tool that had slipped out of oil-slick hands.
+James's anger faltered, as if a tool that had slipped out of oil-slick hands.
 
 "How about we start with 'how the nork did you end up down here?'" Ralph asked.
 
@@ -84,7 +84,7 @@ James thought about it. He _had_ heard that kind of story, hadn't he? And he'd d
 
 They all obediently pressed their thumbs against their noses.
 
-"Those two trees represent... concepts," she said. "Concepts that don't have direct correspondance to languages spoken on Earth. We'll call that black tree _hamartia._ You get it by performing various actions that the system doesn't want. If it gets too big, the system will arbitrarily punish you in all sorts of ways. The biggest one is spawning monsters."
+"Those two trees represent... concepts," she said. "Concepts that don't have direct correspondants in English. We'll call that black tree _hamartia._ You get it by performing various actions that the system doesn't want. If it gets too big, the system will arbitrarily punish you in all sorts of ways. The biggest one is spawning monsters."
 
 Every one of them stared at his black tree. All of them were low, except for Lucky's.
 
