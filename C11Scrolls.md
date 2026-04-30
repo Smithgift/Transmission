@@ -4,7 +4,7 @@ The other Trogs were not particularly torn up about Amanda's 'death.' "People ge
 
 "Drake," Kate said, shaking her head, then turning to James. "It's really hard the first few times, but you get used to it. She's not dead. She's just somewhere out there."
 
-"Being murdered over and over again by monsters."
+"Being murdered over and over again by monsters," James said.
 
 "She has more survival skills now. And she might even be found by another Trog Tribe."
 

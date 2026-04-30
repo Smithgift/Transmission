@@ -1,6 +1,6 @@
 ## Training
 
-James woke up, and briefly panicked. No. He hadn't died, just slept as usual and woke up as usual, as usual as either way, down in the Underneath. He got up, careful not to disturb his snoring bedmate, and headed out of the men's dormatory tent.
+James woke up, and briefly panicked. No. He hadn't died, just slept as usual and woke up as usual. Or at least as usual was down in the Underneath. He got up, careful not to disturb his snoring bedmate, and headed out of the men's dormatory tent.
 
 As he looked around the camp, slowly waking to life, a thought occurred to him: now what?
 
@@ -10,7 +10,7 @@ He spotted Drake and the others forming up. James walked up to them. "Hey."
 
 "Hey," Drake said. "Listen, I don't have anything against you as a person, but you are a newt. We're heading to lower reaches of the Underneath, where the average monster could kill you in seconds. You need to head to basic training at the very least, and then find a low-level party."
 
-James had to admit to himself that everything Drake said made sense. He was the equivelant of a level one noob, even if he had no idea if anything resembled 'levels' in the system here. "No problem," James said. He gave a wave and headed off in search of basic training.
+James had to admit to himself that everything Drake said made sense. He was the equivalent of a level one noob, even if he had no idea if anything resembled 'levels' in the system here. "No problem," James said. He gave a wave and headed off in search of basic training.
 
 In one corner of the camp a kind of training arena had been built, where one baffled older Thinker lady was futilely trying to fend off her instructor's assault. It mostly ended with her getting thumped.
 
@@ -28,9 +28,9 @@ In one corner of the camp a kind of training arena had been built, where one baf
 
 At last the instructor said. "Enough for today." He turned to them. "You two! Come over here."
 
-They approached. James was now close enough to see the instructor had a Watcher's blue hair under his helmet. James froze for a moment. But no, if a Watcher had been Transmitted, he must have offended the Perfects in some fashion.
+They approached. James was now close enough to see the instructor had a Watcher's blue hair under his helmet. James froze for a moment. But no, if a Watcher had been Transmitted, he must have offended the Perfects in some fashion. He was safe.
 
-"Do either of you have any experience with martial arts or combat?"
+"Do either of you have any experience with martial arts or combat?" the instructor asked.
 
 "No," Amanda said.
 
@@ -76,7 +76,7 @@ Still, James thought, he'd carried heavier stuff when working back on Earth. And
 
 "No. Why?"
 
-"I mean, we seem to have some kind of system, and we don't have fluids, but aside from that I feel perfectly---"
+"I mean, we seem to have some kind of system, and we don't have bodily fluids, but aside from that I feel perfectly---"
 
 James had only a moment to draw his short sword and hold it out as the troll charged from out of a side tunnel. Amanda wasn't so lucky. The troll battered her with its club as the other Trogs got together to stop the rest of the charge. James stabbed the one that broke through, stabbed and cut until it collapsed into fur and meat.
 
