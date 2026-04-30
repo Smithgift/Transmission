@@ -32,7 +32,7 @@ James opened his inventory, and merged with the quartermaster as he had seen Dra
 
 "Will I be assigned...?" James asked.
 
-"Everyone has to do _something_, but we don't object to you picking whatever job you can do. We don't respect the Scale down here. For the moment, be on guard duty, and train whenever you can."
+"Everyone has to do _something_, but we don't object to you picking whatever job you can do. We don't respect the Scale down here. For the moment, you'll train whenever you can and possibly end up on guard duty."
 
 "Where do I sleep?" James asked.
 
