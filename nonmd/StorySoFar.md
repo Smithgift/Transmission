@@ -39,3 +39,5 @@ Chapter 8: James meets Boris, the quartermaster, and gets all sorts of rad gear 
 James also learns that what he wrongly believed to be an experience meter is actually a wound meter.
 
 Chapter 9: James puts on the very strange clothing that seems to make no sense. He hangs out with Drake's party, who tell him what they know of the system screens. One finger accesses a screen that allows enchantment, which sometimes causes curses instead. But the thumb-trees have no explanation, and theories abound about how to make them grow or shrink. However, they are the one thing that carries between death-resets.
+
+Chapter 10: James can't join Drake's epic party, because he's still a newt. He heads over to training, where he meets some other newts and a Transmitted Watcher training them, who warns him that the only thing that matters is survival. The Tribe slowly marches through the tunnel in search of untouched caves to exploit, when a band of trolls attack and kill another newt.
