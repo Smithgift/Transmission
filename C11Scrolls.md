@@ -1,12 +1,12 @@
-## Scrolls
+## Expedition
 
 The other Trogs were not particularly torn up about Amanda's 'death.' "People get popped," Drake told him as the camp fortified itself for fourth watch. "Happens all the time. If you get brokenhearted every time you'll eventually run out of heart."
 
 "Drake," Kate said, shaking her head, then turning to James. "It's really hard the first few times, but you get used to it. She's not dead. She's just somewhere out there."
 
-"Being murdered over and over again by monsters," James said.
+"Being murdered over and over again by monsters," James said, his voice hollowed.
 
-"She has more survival skills now. And she'll be found by another Trog Tribe eventually, or maybe even spawn inside a Hold."
+"She has more survival skills now," Drake said. "And she'll be found by another Trog Tribe eventually, or maybe even spawn inside a Hold."
 
 James had also learned that 'loyalty' was a flexible concept to Trogs. Since it was not uncommon that an entire Tribe would be destroyed, especially when fighting a Guardian, there was no real concept of an oath of fealty or tribal rituals. Everything felt uncomfortably transient.
 
@@ -50,7 +50,7 @@ They all fell silent again.
 
 "No, nothing. Let's go."
 
-They walked on in the caves. "Is there normally so many monsters?" James asked.
+They walked on in the caves. "Are there normally so many monsters?" James asked.
 
 "It seems they either spawn in swarms, or you barely see any," a different Trog suggested. "Never just the same amount."
 
@@ -68,7 +68,7 @@ They moved on. James felt himself, though still on edge, relax just a little. Th
 
 * * *
 
-But as if in comfirmation, there wasn't another monster attack before they encountered the stone door covering the entrance to a tunnel. Strange symbols glowed on it, again with no seeming interpretation. Why 'interpretation?' James wondered. It felt too detailed to be generic runes that a game designer just slapped on for decoration.
+But as if in comfirmation, there wasn't another monster attack before they encountered the stone door covering the entrance to a tunnel. Strange symbols glowed on it, again with no seeming interpretation. Why 'interpretation?' James wondered at his own thought. It felt too detailed to be generic runes that a game designer just slapped on for decoration.
 
 "Every room has a door trap, a room curse, or both," Peter told them. "And there's inevitably a monster inside. Opening the door _might_ not trigger a room curse, but trying to break into it through the walls always does. And trying the door _might_ set off the door trap, but it's still better a door trap than a room curse."
 
@@ -76,13 +76,13 @@ But as if in comfirmation, there wasn't another monster attack before they encou
 
 "Some kind of nasty thing that happens if you break some kind of unknown rule," Peter said. "There's pools for both. Now, James and Fred, you're on the left, Paula and me, you're on the right. Raoul's going to try the door."
 
-They formed the formation, a kind of V, with the ends of the legs facing outward. The point, as far as James could tell, was to protect against attacks from either direction. He wanted to turn his head and see, but he was better as a lookout than a
+They formed the formation, a kind of V, with the ends of the legs facing outward. The point, as far as James could tell, was to protect against attacks from either direction. He wanted to turn his head and see, but he was better as a lookout than the front line.
 
 "Nork," Raoul muttered. "No trap."
 
 "OK. Everyone face the door. Be prepared for something to go very wrong when we step inside. But we're going to try and rush the monster instead before that wrong thing happens. Ready? Three, two, one, GO!"
 
-They charged inside to find a ginormous scorpion with an unpleasant number of claws waiting for them. James roared a battle cry and charged, but only screamed as he found himself slammed against the ceiling by invisible forces. The Trogs killed the scorpion in seconds and James came tumbling down. The ground hurt.
+They charged inside to find a ginormous scorpion with an unpleasant number of claws waiting for them. James roared a battle cry and charged, but only screamed as he found himself slammed against the ceiling by invisible forces. The Trogs killed the scorpion in seconds and James came tumbling down. The ground hurt on impact.
 
 "Levitation on the newt," Peter mused. "Least bad room curse."
 
@@ -126,9 +126,9 @@ James stared. That was one fifth of his debt paid for.
 
 * * *
 
-James felt relief when they were back of tension he didn't even realize he had. Even in the depths of the Underneath, he was still pretty safe as long as he was with experienced Trogs. Plus, he had gotten some sweet loot.
+When they were back, James felt relief of tension he didn't even realize he had. Even in the depths of the Underneath, he was still pretty safe as long as he was with experienced Trogs. Plus, he had gotten some sweet loot.
 
-Or so he had opened.
+Or so he had hoped.
 
 Boris looked over his inventory. "A scroll on your first trip? You must be one of the lucky ones."
 
@@ -142,7 +142,7 @@ He felt stung. "Only _ten?_"
 
 James was still disappointed, but he had to admit it wasn't like he could use the scroll, either. "Can I keep the other stuff?"
 
-"If you want, but you probably want to pay off your gear first. But tell you what: keep the sword, and give me back the loaned short sword. The bola is either way, but it's hard to use well, so you're probably better getting credits for it and learning your present weapons better."
+"If you want, but you probably want to pay off your gear first. But tell you what: keep the sword, and give me back the loaned short sword. The bola could go either way, but it's hard to use well, so you're probably better getting credits for it and learning your present weapons better."
 
 "Agreed," James said.
 
@@ -154,4 +154,4 @@ But, he mused, that was never the point. The point was making it to the next wor
 
 Strange, though. Why did these systems work like this? And what even was this place? Did the Perfects really spend all these resources in creating a place that made no sense, where even it seemed the laws of physics were different, instead of Rebuilding the Earth as they were supposed to? But if they created this place, why not create a world where they themselves were immortal?
 
-None of it made sense. Stella might be able to figure it out, a Thinker truly worthy of the name. But he had to find her first, or her, him.
+None of it made sense. Stella might be able to figure it out, as she was a Thinker truly worthy of the name. But he had to find her first, or her, him.
