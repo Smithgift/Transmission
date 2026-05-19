@@ -31,7 +31,7 @@ But it probably wouldn't matter, soon enough. Word had been officially given tha
 
 James didn't plan on sticking with the Dragon Trog Tribe once they got to the Surface---he had to either find or wait for Stella. But they didn't ask, and he didn't tell them. Some Trogs were going to stop off at the Hold and switch paths, because not everyone was a would-be worldclimber.
 
-He couldn't help but feel nervous. He had a lot to lose if the attack on the Labyrinth went wrong, or if they couldn't defeat the Guardian in its central chamber. But if they broke through, all the survivors would hit the Surface.
+He couldn't help but feel nervous. He had a lot to lose if the attack on the Labyrinth went wrong, or if they couldn't defeat the Guardian in its central chamber. But if they broke through, all the survivors would climb to the Surface.
 
 * * *
 
@@ -55,7 +55,7 @@ Another tune blew from the wall.
 
 James felt a concern he couldn't quite name.
 
-A large plaza of stone bricks had been built before the wall, and Hold soldiers were already arriving to escort their own goods carriers. As Boris shook hands with who appeared to be his Hold counterparty, a bunch of peasants flooded out, barely armed. One woman rushed to a Trog, and they embraced passionately.
+A large plaza of stone bricks had been built before the wall, with many benches and plenty of room of walk around or display goods. Hold soldiers soon arrived, escorting their own goods carriers. As Boris shook hands with who appeared to be his Hold counterparty, a bunch of peasants flooded out, barely armed. One woman rushed to a Trog, and they embraced passionately.
 
 James turned away. Maybe romance was too much to think about, considering he had no idea where Stella was.
 
@@ -63,7 +63,7 @@ James turned away. Maybe romance was too much to think about, considering he had
 
 He whirled around. _"Tim Ruby?"_
 
-There he was, the fat young Worker and fellow mechanic who had gotten Transmitted for missing his quota too many times. He looked the kind of happy of perpetually contentment, which admittedly James had always known him to be. But now, dressed in the strange clothing they had down there, he seemed happily a Holdsman.
+There he was, the pudgy young Worker and fellow mechanic who had gotten Transmitted for missing his quota too many times. He looked the kind of happy of perpetually contentment, which admittedly James had always known him to be. But now, dressed in the strange clothing they had down there, he seemed happily a Holdsman.
 
 James slapped him on the back. "How's it been?"
 
@@ -81,6 +81,30 @@ Tim hadn't been kidding about being treated well. The Blue Sunrise Hold had quot
 
 James had been warned he couldn't walk into a Hold with weapons and armor, so Tim was disappointed he couldn't show James the new house Tim had bought. "Well, mortgaged," Tim admitted. "But the payments aren't big, and I get my own garden."
 
-Tim didn't want to hear about monsters or being a Trog, however. James suspected he had not taken well to being spawncamped by monstrosities. "We keep the fires always going so they don't spawn inside," Tim told him.
+Tim didn't want to hear about monsters or being a Trog, however. James suspected he had not taken well to being spawncamped by monstrosities. "We keep the fires always going so they don't spawn inside," Tim told James in a dark whisper. "I like to sleep near them."
 
+Still, James was glad to see Tim was OK, and more than OK at that. If Stella was also at a Hold, James wondered, would he be content to stay with her? To live in the Hold... forever?
 
+"James," a Trog said. "James! We're leaving."
+
+"Oh, sorry," James said, and got off the bench. "I'll---" James stopped. If everything went right, he'd never see Tim again. "Good luck," he finished instead.
+
+"Thanks, man," Tim said, and he headed off.
+
+* * *
+
+As he lay on his mat in the dorm that night, trying to ignore the snoring around him, James tried to figure what bothered him so.
+
+The war that that Trog had mentioned.
+
+So it wasn't all peace and flowers down here. They must occasionally come into conflict, even when there was no reason to fight. It should be everyone against the Perfects, or at the very least the monsters.
+
+But people were people, he mused. Chances were they had their own share of drama, and when people with drama had weapons... and killing people didn't mean they stayed dead...
+
+What of people like Tim? Casualties in a war that they never wanted to fight? But maybe that was why the Hold was so paranoid. Something going wrong and a horde of Trogs burning and looting the place must be unthinkable considering all who might be left inside.
+
+Still, though, why assume the Trogs would start the war? Maybe Hold fought Hold, or Holds norked over a a Tribe. Who knew?
+
+It wouldn't matter, he told himself. In a week or two they'd be at the Labyrinth, and then they'd be fighting for their lives. Tim could enjoy his life in a Hold.
+
+But as he drifted off, he wondered, for a moment... what if _Stella_ was in a Hold that got attacked...
