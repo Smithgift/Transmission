@@ -87,3 +87,21 @@ That night, Stella parked her sleeping bag next to James. "To think we had almos
 "James, revenge isn't going to make this better, even if it is legitimately their fault."
 
 "Why not?"
+
+"Because revenge _never_ makes things better."
+
+James didn't know how to answer that. "Feels good, though."
+
+"Yeah, but it doesn't fix the problem."
+
+"I suppose not."
+
+"If you could press a button, would _you_ make the Perfects tortured in this world while we got to watch it for entertainment?"
+
+James almost said yes. But then he thought about Lucky. "No," James said. "I wouldn't."
+
+"Then don't seek revenge. It isn't right and it won't make anything better."
+
+"OK." He reached over and kissed Stella on the cheek. "I missed you so much."
+
+"Me, too, James."

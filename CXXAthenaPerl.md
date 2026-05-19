@@ -62,7 +62,7 @@ The campfire fell quiet.
 
 Another quiet passed. Lucky looked around, as if waiting for a reaction.
 
-Ralph shook his head again. "Glack, man. Never thought I'd sympathize with a Perfect before."
+Ralph shook his head again. "Dung, man. Never thought I'd sympathize with a Perfect before."
 
 "What do you want here?" Lily asked Lucky.
 

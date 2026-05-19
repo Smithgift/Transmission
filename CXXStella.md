@@ -9,7 +9,7 @@ The Thinker looked up from her blueprint, saw James, and dropped everything to r
 They went to her apartment.
 
 
-"I've been saving up," Stella said. "They needed someone like me who can not only understand how the machines work, but how to combine them in unique ways to do what they want done. This world seems to have slightly different physics, but I've even found tricks the Boss doesn't know. Once I get enough..." she stopped. "We... We can be together. Share a house. Share... our lives."
+"I've been saving up," Stella said. "They needed someone like me who can not only understand how the machines work, but how to combine them in unique ways to do what they want done. This world seems to have slightly different physics, but I've even found tricks the boss doesn't know. Once I get enough..." she stopped. "We... We can be together. Share a house. Share... our lives."
 
 "I don't know about the old customs," James said. "But I'm pretty sure the guy is supposed to propose."
 
