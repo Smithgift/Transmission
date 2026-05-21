@@ -148,7 +148,7 @@ James was still disappointed, but he had to admit it wasn't like he could use th
 
 * * *
 
-He stepped out into the camp proper and began wandering out. He found himself, of all things, happy. He had found a community, they accepted him, and even if he kept asking noob questions and making noob mistakes, eventually he'd be an elite Trog like the rest.
+He stepped out into the camp proper and began wandering out. He found himself, of all things, happy. He had found a community, they accepted him, and even if he kept asking noob questions and making noob mistakes, eventually he'd be a Salamander like Drake.
 
 But, he mused, that was never the point. The point was making it to the next world. Then he had to find Stella, somehow.
 
