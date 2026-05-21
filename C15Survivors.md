@@ -22,7 +22,7 @@ James also did, but didn't have the heart to do so. He opened up his stats scree
 
 "How the nork did someone like you end up down here?"
 
-"I was a librarian. The Perfects ordered a book removed and all references to its existence erased. I refused. So now I'm here."
+"I was a librarian. The Perfects ordered a book destroyed and all references to its existence erased. I refused. So now I'm here."
 
 Thankfully, James hadn't been so injured he fell unconscious, though that would probably be the end. The cream stung, and---
 
@@ -70,7 +70,7 @@ But Stella didn't believe in luck. James had never gotten a straight answer abou
 
 James considered snapping back. But they had both seen some serious dung over the last few watches. "I loved a Thinker girl. We were meeting in secret, and a Perfect found out and wanted her. I slapped the nork out of him, and we both got Transmitted." Though, James realized, he didn't _know_ Stella was Transmitted.
 
-The alternative was too grim to think about, ironically. "I suppose that's like me and---Contact!"
+The alternative was too grim to think about, ironically. "I suppose that's like me and---Contact!" Wanda cut herself off.
 
 James whirled around to see a whole band of trolls charging out of a tunnel. James stood his ground, and slashed and cut and tried to dodge as they swarmed him.
 

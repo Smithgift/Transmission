@@ -1,17 +1,27 @@
-## The Party
+## Wayfarer
 
 James stayed awake that night, thinking.
 
-
+He could find another Trog Tribe.
 
 
 * * *
 
-The Unwanted looked around with weary eyes, as if ground down over and over again.
+Who knew if taverns existed and Wayfarers inevitably gathered there, or if taverns were built and then they gathered there? 
 
-"I'm Ralph ML, the Thinker's Lily Haskell, Fred Python's the tall guy, and Lucky is over there."
 
-"I'm James Algol," James said. "I would have been a Salamander of the late Trog Tribe, but never got my Trickery high enough."
+James decided to start with the top and work his way down. 
+
+
+
+
+This party had high-end gear. One bulky, muscular Worker sat on a huge chair, laughing and pounding the table with mirth. A Thinker with them looked around calmly. Another, tall worked picked at his food. And finally, an Unwanted with bonnet tightly bound to her hair, looked around with weary eyes, as if ground down over and over again.
+
+Only four, so they probably wanted one more. James sat beside them. "Hey, looking for another member?"
+
+"Yes," the bulky Worker said. "I'm Ralph ML, the Thinker's Lily Haskell, Fred Python's the tall guy, and Lucky is over there." He waved at the quiet Unwanted.
+
+"I'm James Algol," James said. "I would have been a Salamander of the late Dragon Trogdolyte Tribe, but never got my Trickery high enough."
 
 "Hah," Fred said, facepalming. "You're the first person to be honest about that."
 

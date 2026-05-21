@@ -9,8 +9,54 @@ Lucky took out a stone bowl, dropped a scroll into it, and then put it into the 
 
 "How the nork was anyone ever supposed to figure _that_ out?" Ralph about yelled.
 
-"Beats me. We discovered it more or less by accident, and with some examination of what we could understand of this culture."
+"Oh, it's explained in the manual. It's just that the Perfects don't give it out, and it's written in Oru."
 
-"How do you access it?"
+"How do you access it?" Lily asked.
 
-"Oh, that's pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her left pinky, then tapped a button. "That binds it to my left pinky. Then I tap it with my thumb." She stood up, faced away from the campfire, and tapped her finger. A tree stump sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way. You can also cast it directly from the magic screen, but in the heat of battle it's easier to use your fingers."
+"_That's_ pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her left pinky, then tapped a button. Then she pointed at a tree stump. It sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way, but it's slow and hard to use in battle.
+
+"There's a faster way. If you chant the first few words of the scroll, with correct pitch and intonation, you can use it without fingers or magic screen. Once you have them memorized, it's a lot quicker to use magic that way. Just be careful you don't use it too often, or you'll max out your magic bar and bad stuff happens."
+
+"What kind of bad stuff?" James asked.
+
+"Anything from temporary paralysis to being set on fire to being turned into a tree. And I'm not even joking about the last one."
+
+"How the nork are you supposed to know what to chant?" Ralph asked.
+
+"Oh, it's written in Oru on the scroll. You just need to be able to read Oru. I will teach you, but it's hard to learn the language, and it's tonal, so if you get the pitches wrong, it's not going to work."
+
+"The room curse where you can't hit a certain pitch..." James started.
+
+"Exactly. An anti-magic room curse, as clearly described in Oru on the door to a room."
+
+"You knew all the room curses and didn't tell us?" Ralph asked, shaking his head.
+
+"There was a significant chance I could die, or a lot worse, if you knew I was a Perfect. But I did tell you certain rooms were unlucky."
+
+James wanted to argue, but he realized Lucky had every reason to not trust them. But Lily beat him to it. "I realize you didn't have a reason to trust us then, but why now?"
+
+"Because I'm more likely to survive now," Lucky said. "The price for being abandoned is a lot higher than if a party in the Underneath were to turn on me." She said this calmly, meeting their eyes.
+
+"Parties turned on you a lot?" Stella asked in concern.
+
+"More times than I can remember or count."
+
+The camp fell quiet. "Lucky, is this a day when we can learn spells?" Lily asked.
+
+"Yeah, the blue stars are shining. Why?"
+
+"Why don't we learn all the blue spells we can?"
+
+"How can you even tell what the color is?" Ralph asked.
+
+"It's written in Oru, presumably," Stella said.
+
+"In Oru numerology, when you add up the values of all the characters, yes," Lucky said.
+
+"All this time we've been playing on extra hard mode simply because we can't read Oru," James said. "Whoever designed this place is probably rolling in his grave."
+
+"Maybe. But even with all we knew of the Oru---even with all _I_ know of the Oru---we've still found it incredibly difficult to climb the worlds."
+
+"On that subject," Ralph said. "Spells?"
+
+"Sure," Lucky said. "Show me and I'll tell you which ones I know are blue."

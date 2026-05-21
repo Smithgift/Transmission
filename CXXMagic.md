@@ -1,6 +1,8 @@
 ## Magic
 
-The camp had no tension in the morning. No one looked at Lucky with anger or suspicion, not even James. But she put her Unwanted bonnet back on anyway. She had every reason to do, James thought bitterly. He didn't know if he would have treated her any better had he not known she was Lucky.
+The camp had much less tension in the morning, but James realized they had still pushed Lucky too far. Even if no one looked at Lucky with anger or suspicion, not even James, she still looked at them back with a hint of fear. 
+
+She put her Unwanted bonnet back on, tying it tightly so not one strand of hair was visible. She had every reason to do, James thought bitterly. He didn't know if he would have treated her any better had he not known she was Lucky.
 
 He walked up beside Lucky on their march. "Hey," he said.
 
@@ -20,7 +22,7 @@ At this Lily and Ralph hurried up to the two. "You know how to work that screen?
 
 "Why tomorrow?" James asked before Ralph could.
 
-"Because that's how the magic system works. Let me go into some detail, OK?" she asked. James could hear the slightest note of fear, as if dreading them all turning on her at this moment.
+"Because that's how the magic system works. Let me go into some detail, OK?" she asked. James could hear the slightest note of fear, as if dreading that now this was going to be the last straw.
 
 "Sure," Lily said. "We trust you."
 

@@ -2,7 +2,7 @@
 
 They all stared at her.
 
-"Yes," Lucky said, meeting their eyes. "I'm a Perfect. Down here like everyone else. And because I'm a Perfect, it means I know a lot more about these worlds than you all do. So how about you listen to me?"
+"Yes," Lucky said, meeting their eyes. Her voice had gained authority, as if a housecat had just revealed itself to be a lion. "I'm a Perfect. Down here like everyone else. And because I'm a Perfect, it means I know a lot more about these worlds than you all do. So how about you listen to me?"
 
 No one moved.
 
@@ -68,9 +68,9 @@ Ralph shook his head again. "Dung, man. Never thought I'd sympathize with a Perf
 
 "I said it before: to get out. I haven't lied to any of you about that."
 
-"Why not try to get everyone out? You clearly know real facts about the system."
+"Why not try to get everyone out?" Lily persisted. "You clearly know real facts about the system."
 
-"That was my original goal," she said. "Spite the Perfects by getting as many people out as possible. But what do I have to offer? I do know facts, yes, but not everyone wants to hear them. Knowledge is power, and if I prove you wrong about the system, that just means I took power from you and gave it to myself. The average Thinker doesn't want that. It's easier to say that that Perfect going around is just trying to sabotage everything with her strange ideas."
+"That was my original goal," Lucky said. "Spite the Perfects by getting as many people out as possible. But what do I have to offer? I do know facts, yes, but not everyone wants to hear them. Knowledge is power, and if I prove you wrong about the system, that just means I took power from you and gave it to myself. The average Thinker doesn't want that. It's easier to say that that Perfect going around is just trying to sabotage everything with her strange ideas."
 
 "But _some people_ had to believe you," James said.
 

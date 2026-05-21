@@ -58,6 +58,12 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Nork, Lucky, you know I would never do that to you," Ralph said. "Not after you've been so honest with us about you even being a Perfect."
 
+"A what?" Stella asked.
+
+Lucky briefly pulled down her bonnet.
+
+"...Oh."
+
 "I'd love to see the fourth world," Lily said. "Not being spied upon is an added bonus."
 
 "Yeah, me, too," Ralph said. "And they're never going to leave any of us alone either, now that we know the truth."
@@ -68,7 +74,15 @@ The tension dissipated as they all nodded their heads.
 
 "I have so many questions about... things I've come across," Stella said.
 
-"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. Our _hamartia_ is so high that we could get jumped by monsters even with the incense logs."
+"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. On that subject," she pulled a scroll out of her inventory and threw it on the fire. It blazed blue briefly. "_Ari Olu Karu Karu Pari._" she chanted.
+
+Suddenly the night seemed less hostile.
+
+"You would call that spell 'sanctuary'," Lucky said. "I keep a bunch of scrolls with blue magic in my inventory just in case."
+
+"I'm assuming it's not foolproof," Stella said.
+
+"It isn't, it just raises the threshhold to the max. But our _hamartia_ is so high that we could get jumped by monsters even with the incense logs."
 
 "That's what these things are called?" Ralph asked.
 

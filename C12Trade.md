@@ -21,7 +21,7 @@ The middle stat almost never grew. Apparently it was exercised by using scrolls,
 
 The fourth stat was universally agreed to be Speed, because it grew by running and it made you run faster. It also made the rest of your body a little swifter, which made it one of the major requirements to be a Salamander.
 
-The fifth was again disputed, but no one disputed it made doors safer to open. Drake had told James it was called Trickery, and so that's what James thought of it as. Unfortunately, you couldn't really train it except by opening potentially trapped doors, and no one wanted to let some random person with low Trickery open a door when it could do anything from explode to teleport people around if the room trap went off.
+The fifth was again disputed, but no one disputed it made doors safer to open. Drake had told James it was called Trickery, and so that's what James thought of it as. Unfortunately, you couldn't really train it except by opening potentially trapped doors, and no one wanted to let some random person with low Trickery open a door when it could do anything from explode to teleport people around if the door trap went off.
 
 Not that there was any _skill_ involved. If you opened a door and it was trapped, it went off, unless your Trickery saved you. Or maybe having a high Trickery meant doors you tried weren't trapped, as James had heard it floated. But at least everyone agreed that it helped.
 
@@ -45,7 +45,7 @@ They travelled through larger and larger caverns, until they came to one that ha
 
 They waited.
 
-Another tune blew from the wall.
+Another tune blew from a murderhole in the wall.
 
 "They're letting us come close," A Trog told James. "We don't want to get them scared if we were to try to rush the walls."
 
@@ -63,7 +63,7 @@ James turned away. Maybe romance was too much to think about, considering he had
 
 He whirled around. _"Tim Ruby?"_
 
-There he was, the pudgy young Worker and fellow mechanic who had gotten Transmitted for missing his quota too many times. He looked the kind of happy of perpetually contentment, which admittedly James had always known him to be. But now, dressed in the strange clothing they had down there, he seemed happily a Holdsman.
+There he was, the pudgy young Worker and fellow mechanic who had gotten Transmitted for missing his quota too many times. He looked the kind of happy from perpetually contentment, which admittedly James had always known him to be. But now, dressed in the strange clothing they had down there, he seemed happily a Holdsman.
 
 James slapped him on the back. "How's it been?"
 
@@ -103,7 +103,7 @@ But people were people, he mused. Chances were they had their own share of drama
 
 What of people like Tim? Casualties in a war that they never wanted to fight? But maybe that was why the Hold was so paranoid. Something going wrong and a horde of Trogs burning and looting the place must be unthinkable considering all who might be left inside.
 
-Still, though, why assume the Trogs would start the war? Maybe Hold fought Hold, or Holds norked over a a Tribe. Who knew?
+Still, though, why assume the Trogs would start the war? Maybe Hold fought Hold, or Holds norked over a Tribe. Who knew?
 
 It wouldn't matter, he told himself. In a week or two they'd be at the Labyrinth, and then they'd be fighting for their lives. Tim could enjoy his life in a Hold.
 

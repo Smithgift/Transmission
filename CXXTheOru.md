@@ -42,7 +42,7 @@ The campfire watched Lucky without a word.
 
 "You're telling me the Perfects have interstellar travel?" Ralph said, shaking his head. "Unbelievable. But we're here."
 
-"We have all of two ships left, and one is in deteriorating condition. But the second of those ships had been traveling pre-Collapse, came across the Oru satellite debris, and returned it to Earth."
+"We have all of two ships left, and one is in deteriorating condition. But the other of those ships had been traveling pre-Collapse, came across the Oru satellite debris, and returned it to Earth."
 
 "Wait, if they found the Oru homeworld, surely they found all kinds of stuff, right?" Stella asked.
 

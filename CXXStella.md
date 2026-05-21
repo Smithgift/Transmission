@@ -23,7 +23,7 @@ They kissed, long and hard.
 
 "I need to introduce you to my party," James said. "That's how I got up here so fast."
 
-"I got lucky with a Trog Tribe," Stella said. "Wasn't a huge amount left after we killed the Guardian, but we made a sizable party for navigating the Surface. Then we stopped at this city and decided to wait for you. Or at least I did."
+"I got lucky with a Trog Tribe," Stella said. "Wasn't a huge amount left after we killed the Guardian, but we made a sizable party for navigating the Surface. Then we stopped at this city and I decided to wait for you."
 
 
 

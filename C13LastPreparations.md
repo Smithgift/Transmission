@@ -6,7 +6,7 @@ Drake and his party, meanwhile, seemed unmoved. James was disappointed that he s
 
 "What's it like?" James ventured.
 
-"The Surface?"
+"The Surface?" Drake asked.
 
 "No, the Labyrinth."
 
@@ -40,7 +40,7 @@ The colossal outer doors of the Labyrinth towered over the Dragon Trogdolyte Tri
 
 The Tribe Officers, a mix of Watchers and Workers, gave a speech to which James, try as he could, could not pay any attention. All he could think of was the Guardian, which stood between him and the Surface, and thus Stella.
 
-At last they cheered, and James cheered, too. "We begin in an hour," the Chieftain, a Watcher barked. "Get ready!"
+At last they cheered, and James cheered, too. "We begin in an hour," the Tribe Chieftain, a Watcher, barked. "Get ready!"
 
 Some of the Trogs took time to be by themselves and pray---strange, but James admitted those Transmitted for practicing a religion would still practice it down here. Others embraced. Most, however, headed towards the quartermaster's tent.
 
@@ -64,7 +64,7 @@ Boris also insisted on filling James's inventory with scrolls, salves, and pills
 
 "What do they do?" James asked.
 
-"Scrolls are a mix of offensive spells. Just tear them in two and point."
+"These scrolls are a mix of offensive spells. Just tear them in two and point."
 
 "...You're not supposed to read them?" James admitted.
 
@@ -82,4 +82,4 @@ At last the whole Tribe was assembled, everything else left behind in disorganiz
 
 "YES, SIR!" the Tribe shouted back.
 
-"Here we go!" he approached the door, and pulled a glowing orange key from his inventory. The key was recognizably a key, but strangely ornate. James only saw it for a moment, because the next the Chieftain had touched it to the door. The symbols shone to life, and moments later, with an immense grinding, the doors began to swing inward.
+"Here we go!" he approached the door, and pulled a glowing orange key from his inventory. The key was recognizably a key, but ornate in a strange way, not like any other he'd seen. James only saw it for a moment, because the next the Chieftain had touched it to the door. The symbols shone to life, and moments later, with an immense grinding, the doors began to swing inward.
