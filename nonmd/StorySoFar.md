@@ -11,10 +11,11 @@ Stella Cobol: James's forbidden Thinker girlfriend who, last he heard, was also 
 
 The Dragon Trogdolyte Tribe:
 
-Drake: an elite adventurer and party leader.\
+Drake: A Salamander and party leader.\
 Kate: A Thinker with Drake's party.\
 Gus: A large and thoughtful worker in Drake's party.\
-Boris: the quartermaster of the Dragon Trog Tribe.
+Boris: The quartermaster of the Dragon Trog Tribe.\
+Peter: A party leader.
 
 The story so far:
 
@@ -34,10 +35,14 @@ Chapter 6: After endless respawns, James considers giving up, but remembers Stel
 
 Chapter 7: James wakes up to find he had died again, and lost everything. James is found by Drake and his party, who take him to the Dragon Trog Tribe. James learns he is a "newt", or Newly Transmitted, and this world is known as the Underneath.
 
-Chapter 8: James meets Boris, the quartermaster, and gets all sorts of rad gear as a member, although he is told that it's on credit. He learns that the humans of the Underneath have formed more or less three groups: the nomadic Trog Tribes, who wander the Underneath, the Holds that stay in place and the Wanderers, small parties that travel from Hold to Hold.
+Chapter 8: James meets Boris, the quartermaster, and gets all sorts of rad gear as a member, although he is told that it's on credit. He learns that the humans of the Underneath have formed more or less three groups: the nomadic Trog Tribes, who wander the Underneath, the Holds that stay in place and the Wayfarers, small parties that travel from Hold to Hold.
 
 James also learns that what he wrongly believed to be an experience meter is actually a wound meter.
 
 Chapter 9: James puts on the very strange clothing that seems to make no sense. He hangs out with Drake's party, who tell him what they know of the system screens. One finger accesses a screen that allows enchantment, which sometimes causes curses instead. But the thumb-trees have no explanation, and theories abound about how to make them grow or shrink. However, they are the one thing that carries between death-resets.
 
-Chapter 10: James can't join Drake's epic party, because he's still a newt. He heads over to training, where he meets some other newts and a Transmitted Watcher training them, who warns him that the only thing that matters is survival. The Tribe slowly marches through the tunnel in search of untouched caves to exploit, when a band of trolls attack and kill another newt.
+Chapter 10: James can't join Drake's epic party of Salamanders, because he's still a newt. He heads over to training, where he meets some other newts and a Transmitted Watcher training them, who warns him that the only thing that matters is survival. The Tribe slowly marches through the tunnel in search of untouched caves to exploit, when a band of trolls attack and kill another newt.
+
+Chapter 11: The Salamanders of Drake's party are unmoved by the death. James go on an adventure with a party, where they kill some monsters and eventually find a room. These rooms either have a door trap, a room curse, or both. They also have a monster. After charging inside (and James accidentally setting off a room curse) they get some phat loot, including a sword and a scroll for James.
+
+These scrolls are one-use magic spells, but Boris tells him this the scroll is merely "reduce hunger," a common scroll that's more or less just an easy-to-carry meal. He still gets credit for it, and keeps his cool new sword.
