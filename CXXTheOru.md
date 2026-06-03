@@ -12,7 +12,7 @@ They only stopped when Lucky found one of her special trees. The strange stars s
 
 "No, I said _both of you_ are in grave danger, and if you will let me start my story I can get to it."
 
-"Just let her talk," Lily suggested.
+"Just let her talk," Violet suggested.
 
 The campfire watched Lucky without a word.
 
@@ -20,7 +20,7 @@ The campfire watched Lucky without a word.
 
 "You said it was made by a culture you didn't understand," James said.
 
-"It's not from this planet, isn't it?" Lily asked.
+"It's not from this planet, isn't it?" Violet asked.
 
 "If you mean 'Earth' that's correct. We are on an artificial world designed to simulate the homeworld of the Oru."
 

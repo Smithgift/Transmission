@@ -8,7 +8,7 @@ No one moved.
 
 "If you're angry about the Scale that sent you here, I got nurcked by it, too," she added. "Now before we all die of monsters, let's chop down _that_ tree."
 
-Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Lily stayed with Lucky, staring at her in a mixture of concern and confusion.
+Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Violet stayed with Lucky, staring at her in a mixture of concern and confusion.
 
 The tree crashed and shattered into logs. James picked up a log and dropped it in the fire. The fire turned a slightly different color, as if in confirmation of Lucky's words. An acrid but sweet scent came from the fire, and James relaxed a little.
 
@@ -20,7 +20,7 @@ The tree crashed and shattered into logs. James picked up a log and dropped it i
 
 "A great question. Maybe you shouldn't. Maybe you should just abandon me and leave me to my death. It's happened lots of times."
 
-"James," Lily said. "We all trusted her before this. Shouldn't we keep on doing that?"
+"James," Violet said. "We all trusted her before this. Shouldn't we keep on doing that?"
 
 "You Perfects are the reason we're down here!" James shouted.
 
@@ -32,7 +32,7 @@ James's anger faltered, as if a tool that had slipped out of oil-slick hands.
 
 "I fell in love with an Unwanted. It wouldn't matter what I did if I had already been married, but my family didn't want the goods damaged before that," She said this calmly, but James wondered if the streak of anger was from being disbelieved now or the original incident.
 
-"And they Transmitted you?" Lily asked.
+"And they Transmitted you?" Violet asked.
 
 "Yes. Mother argued against it, Father argued for it, my brothers were equally split. But I was going to marry someone from the Supreme Council, so it was they who cared about the bill of sale, so to speak."
 
@@ -64,11 +64,11 @@ Another quiet passed. Lucky looked around, as if waiting for a reaction.
 
 Ralph shook his head again. "Dung, man. Never thought I'd sympathize with a Perfect before."
 
-"What do you want here?" Lily asked Lucky.
+"What do you want here?" Violet asked Lucky.
 
 "I said it before: to get out. I haven't lied to any of you about that."
 
-"Why not try to get everyone out?" Lily persisted. "You clearly know real facts about the system."
+"Why not try to get everyone out?" Violet persisted. "You clearly know real facts about the system."
 
 "That was my original goal," Lucky said. "Spite the Perfects by getting as many people out as possible. But what do I have to offer? I do know facts, yes, but not everyone wants to hear them. Knowledge is power, and if I prove you wrong about the system, that just means I took power from you and gave it to myself. The average Thinker doesn't want that. It's easier to say that that Perfect going around is just trying to sabotage everything with her strange ideas."
 
@@ -90,7 +90,7 @@ Every one of them stared at his black tree. All of them were low, except for Luc
 
 "I wouldn't have traveled with any of you if you had too much _hamartia,_" Lucky said. "It's too dangerous. The incense of this particular tree will increase the minimum threshhold at which the system will spawn monsters, so we're safe."
 
-"What about the other tree?" Lily asked before James could. "Good karma?"
+"What about the other tree?" Violet asked before James could. "Good karma?"
 
 "We'll call it _arete_. Grown by actions the system would reward. Things like being the strongest or winning battles or giving away food. Things that the culture that made this place considered excellent. And you might be able to guess what it does."
 
@@ -116,15 +116,15 @@ They all looked at Lucky's white tree, which was enormous. "It gives you luck," 
 
 Lucky watched them all in silence. The fire crackled.
 
-"You have to know it's possible to get back," Lily said. "Or you wouldn't be trying, right?"
+"You have to know it's possible to get back," Violet said. "Or you wouldn't be trying, right?"
 
-"Let her answer, Lily," Ralph growled.
+"Let her answer, Violet," Ralph growled.
 
 "Do you really want to know?" Lucky said. "If what you hope for is or isn't possible, will it give you despair?"
 
 "I'd rather know the truth, Lucky. And it sounds awfully like you know the truth," Ralph said.
 
-"Yeah, me, too." Lily said.
+"Yeah, me, too." Violet said.
 
 "Same," James said.
 
@@ -142,7 +142,7 @@ The campfire was deathly quiet.
 
 "That's why I warned you."
 
-Lily yawned. "Whatever's at the top, we're not climbing up there tonight. I vote we sleep now and talk in the morning."
+Violet yawned. "Whatever's at the top, we're not climbing up there tonight. I vote we sleep now and talk in the morning."
 
 "I agree," Ralph said.
 

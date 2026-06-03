@@ -12,7 +12,7 @@ He walked up beside Lucky on their march. "Hey," he said.
 
 "Oh, _that_ screen?" Lucky gave a chuckle. "You would not believe how badly the Transmitted have messed up the magic system."
 
-At this Lily and Ralph hurried up to the two. "You know how to work that screen?" Ralph asked, curious but not hostile.
+At this Violet and Ralph hurried up to the two. "You know how to work that screen?" Ralph asked, curious but not hostile.
 
 "Yes." She tapped her nose with her middle finger and held out the screen. Rather than the large empty box, there were layers of colored bars with strange text on them, some shining in gold. But the colors were dull, as if lifeless. "This is the magic screen. Spells I've learned are in there."
 
@@ -24,7 +24,7 @@ At this Lily and Ralph hurried up to the two. "You know how to work that screen?
 
 "Because that's how the magic system works. Let me go into some detail, OK?" she asked. James could hear the slightest note of fear, as if dreading that now this was going to be the last straw.
 
-"Sure," Lily said. "We trust you."
+"Sure," Violet said. "We trust you."
 
 Lucky looked around, but didn't relax much. "To use magic, you need three things. One are the scrolls that the Transmitted so carelessly waste. They contain the chant you need to sing, but if you just tear them in two, you get just one use.
 
@@ -38,7 +38,7 @@ Lucky looked around, but didn't relax much. "To use magic, you need three things
 
 "We'll get to that," Lucky said.
 
-"Let's stick with magic," Lily insisted.
+"Let's stick with magic," Violet insisted.
 
 "Right," Lucky said. "The more magic you use, the more dangerous it is to you, so you really don't want to fill that overuse meter. But with mere scrolls, you're never going to hit it unless you're constantly wasting them.
 
@@ -52,7 +52,7 @@ They all switched to see them.
 
 "---You can see which stars are shining, and thus what magic will work on that day. Or not work."
 
-"That day you made us all wait before challenging the Guardian," Lily thought out loud. "You were making sure we were on the right day?"
+"That day you made us all wait before challenging the Guardian," Violet thought out loud. "You were making sure we were on the right day?"
 
 "Correct," Lucky said. "If we were on the wrong one I couldn't have spammed fire spears like I did at the end."
 
@@ -68,7 +68,7 @@ They all switched to see them.
 
 "Yes," Lucky said. "But I didn't know if I could trust you all, yet."
 
-"Can you use a scroll to give color for a different spell?" Lily asked.
+"Can you use a scroll to give color for a different spell?" Violet asked.
 
 "If you throw it into a fire, yes. But only for a few seconds."
 

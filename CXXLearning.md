@@ -11,7 +11,7 @@ Lucky took out a stone bowl, dropped a scroll into it, and then put it into the 
 
 "Oh, it's explained in the manual. It's just that the Perfects don't give it out, and it's written in Oru."
 
-"How do you access it?" Lily asked.
+"How do you access it?" Violet asked.
 
 "_That's_ pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her left pinky, then tapped a button. Then she pointed at a tree stump. It sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way, but it's slow and hard to use in battle.
 
@@ -33,7 +33,7 @@ Lucky took out a stone bowl, dropped a scroll into it, and then put it into the 
 
 "There was a significant chance I could die, or a lot worse, if you knew I was a Perfect. But I did tell you certain rooms were unlucky."
 
-James wanted to argue, but he realized Lucky had every reason to not trust them. But Lily beat him to it. "I realize you didn't have a reason to trust us then, but why now?"
+James wanted to argue, but he realized Lucky had every reason to not trust them. But Violet beat him to it. "I realize you didn't have a reason to trust us then, but why now?"
 
 "Because I'm more likely to survive now," Lucky said. "The price for being abandoned is a lot higher than if a party in the Underneath were to turn on me." She said this calmly, meeting their eyes.
 
@@ -41,7 +41,7 @@ James wanted to argue, but he realized Lucky had every reason to not trust them.
 
 "More times than I can remember or count."
 
-The camp fell quiet. "Lucky, is this a day when we can learn spells?" Lily asked.
+The camp fell quiet. "Lucky, is this a day when we can learn spells?" Violet asked.
 
 "Yeah, the blue stars are shining. Why?"
 

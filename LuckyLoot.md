@@ -6,7 +6,7 @@ James reached for a jar, but Ralph grabbed his arm. "Only Lucky opens jars."
 
 "Really?" James asked. The reason Trogs rotated jar opening was because equipment found in a jar would always be the size of the person who opened it. It also gave a small amount of Trickery exercise, so it was worth spreading it around.
 
-"Yes, really," Lily said.
+"Yes, really," Violet said.
 
 Lucky inspected a jar, thought about it, then inspected a different jar, rapping on it a few times. Then she opened it, to get a sword that blazed with green fire, a tower shield, three scrolls, and a glowing stone.
 

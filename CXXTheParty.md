@@ -19,13 +19,13 @@ This party had high-end gear. One bulky, muscular Worker sat on a huge chair, la
 
 Only four, so they probably wanted one more. James sat beside them. "Hey, looking for another member?"
 
-"Yes," the bulky Worker said. "I'm Ralph ML, the Thinker's Lily Haskell, Fred Python's the tall guy, and Lucky is over there." He waved at the quiet Unwanted.
+"Yes," the bulky Worker said. "I'm Ralph ML, the Thinker's Violet Haskell, Fred Python's the tall guy, and Lucky is over there." He waved at the quiet Unwanted.
 
 "I'm James Algol," James said. "I would have been a Salamander of the late Dragon Trogdolyte Tribe, but never got my Trickery high enough."
 
 "Hah," Fred said, facepalming. "You're the first person to be honest about that."
 
-"I like him already," Lily said.
+"I like him already," Violet said.
 
 "Where'd you get your equipment?" Ralph asked.
 
@@ -43,7 +43,7 @@ Only four, so they probably wanted one more. James sat beside them. "Hey, lookin
 
 "...What?"
 
-"Lucky thinks that Guardian fights are scaled to the number of people in the Labyrinth," Lily said.
+"Lucky thinks that Guardian fights are scaled to the number of people in the Labyrinth," Violet said.
 
 "I don't just _think_ it," Lucky muttered.
 
@@ -51,11 +51,11 @@ Only four, so they probably wanted one more. James sat beside them. "Hey, lookin
 
 "You've worldclimbed?" James asked.
 
-"All of us except Fred," Lily said. "I take it you haven't?"
+"All of us except Fred," Violet said. "I take it you haven't?"
 
 "No," James said. "But I want to."
 
-"See, Lucky's theory is that we can just assault a Labyrinth as a bunch of Wayfarers and make it, since we're going to be small enough that the bad stuff doesn't spawn," Lily said. "It's been done before. Met someone on the Surface who had been a Wayfarer."
+"See, Lucky's theory is that we can just assault a Labyrinth as a bunch of Wayfarers and make it, since we're going to be small enough that the bad stuff doesn't spawn," Violet said. "It's been done before. Met someone on the Surface who had been a Wayfarer."
 
 Some part of James was about to argue, but realized before the words reached his mouth that that was just to defend his own Tribe. He needed to convince these people to take him. "I'm up for it," James said.
 

@@ -24,7 +24,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Yes. And they'll keep doing so, until we reach the fourth world."
 
-"What stops them from doing this all the time?" Lily asked. "If they're out to get you, then they'll keep punishing everyone in your party, right? Can't they just send monsters every second?"
+"What stops them from doing this all the time?" Violet asked. "If they're out to get you, then they'll keep punishing everyone in your party, right? Can't they just send monsters every second?"
 
 "It must cost them something," James said, holding his forehead.
 
@@ -34,7 +34,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "You just can't, period. The cameras don't even track you beyond that point."
 
-"You used them," Lily stated. It wasn't a question.
+"You used them," Violet stated. It wasn't a question.
 
 "Yes," Lucky said. "But after I met Joshua, I quit. I didn't want to see anyone suffer any more."
 
@@ -54,7 +54,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Then the only safe option for Stella and I is to get to the fourth world," James said. "And you, too, Lucky,"
 
-"I've been trying to get there for years for that very reason. But that said," she turned to Lily and Ralph. "Depending on what you do, the Perfects might take pity on you. If you turned on us right now..."
+"I've been trying to get there for years for that very reason. But that said," she turned to Violet and Ralph. "Depending on what you do, the Perfects might take pity on you. If you turned on us right now..."
 
 "Nork, Lucky, you know I would never do that to you," Ralph said. "Not after you've been so honest with us about you even being a Perfect."
 
@@ -64,7 +64,7 @@ Lucky briefly pulled down her bonnet.
 
 "...Oh."
 
-"I'd love to see the fourth world," Lily said. "Not being spied upon is an added bonus."
+"I'd love to see the fourth world," Violet said. "Not being spied upon is an added bonus."
 
 "Yeah, me, too," Ralph said. "And they're never going to leave any of us alone either, now that we know the truth."
 

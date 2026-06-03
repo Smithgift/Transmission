@@ -22,7 +22,7 @@
 
 James opened his mouth, but saw the terror in Lucky's eyes, as if evil was about to occur, and occur to her.
 
-Lily saw it, too. "It doesn't matter, does it? She's used those scrolls, and it killed a Guardian. We should just leave her alone."
+Violet saw it, too. "It doesn't matter, does it? She's used those scrolls, and it killed a Guardian. We should just leave her alone."
 
 "Yeah, I guess so," Ralph said. "Lucky, we do need to talk next time---"
 
@@ -32,7 +32,7 @@ James felt uncomfortable. Everything had been going great, aside from Fred's dea
 
 * * *
 
-Lucky continued to act odd. She refused to talk to anyone, even Lily, and marched at some distance from the rest of them. James thought about apologizing, but in truth, he didn't even know how he had hurt Lucky.
+Lucky continued to act odd. She refused to talk to anyone, even Violet, and marched at some distance from the rest of them. James thought about apologizing, but in truth, he didn't even know how he had hurt Lucky.
 
 He probably should still apologize. He fell back a little. "Hey."
 
@@ -58,7 +58,7 @@ The tension still hung over them, too, and James now wished he hadn't started th
 
 Ralph shrugged, and started hacking at it with his axe. James, for lack of anything else, decided to patrol in search of brushwood. It was getting dark, though, so---"Ow!" His foot hit a log. "Hey, guys! There's a log already down here."
 
-Ralph came over a moment later, and they eagerly hefted it up and brought to their camp. A moment from Ralph's knife and it was blazing. "That's easy," Lily said, as Lucky rejoined them.
+Ralph came over a moment later, and they eagerly hefted it up and brought to their camp. A moment from Ralph's knife and it was blazing. "That's easy," Violet said, as Lucky rejoined them.
 
 "No it's _not!"_ Lucky suddenly erupted. "You need to cut down that tree!"
 
