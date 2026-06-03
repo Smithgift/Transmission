@@ -1,6 +1,6 @@
 ## Magic
 
-The camp had much less tension in the morning, but James realized they had still pushed Lucky too far. Even if no one looked at Lucky with anger or suspicion, not even James, she still looked at them back with a hint of fear. 
+The camp had much less tension in the morning, but James realized they had still pushed Lucky too far. Even if no one looked at Lucky with anger or suspicion, not even James, she still looked at them back with a hint of fear.
 
 She put her Unwanted bonnet back on, tying it tightly so not one strand of hair was visible. She had every reason to do, James thought bitterly. He didn't know if he would have treated her any better had he not known she was Lucky.
 
@@ -58,13 +58,13 @@ They all switched to see them.
 
 "And what day it is changes how enchantments work?" James asked.
 
-"Yes, and there's an insane number of interconnected rules based on what item it is, what enchantment it already has, and what day it is or other sources of color you have access to. Even we Perfects haven't figured it all out."
+"Yes, and there's an insane number of interconnected rules based on what item it is, what enchantments it already has, and what day it is or other sources of color you have access to. Even we Perfects haven't figured it all out."
 
 "'Other sources of color'," James repeated.
 
 "Yes. The stars are just one source. Certain items radiate color, as well as certain monsters, believe it or not. As do some places. But if you use a scroll, the burning provides a single blast of color for one use of the spell. That's why using them is so wasteful."
 
-"Nork, Lucky, you must have been cringing every time we used one," Ralph said, shaking his head. "All this time we could have had unlimited access."
+"Nurrk, Lucky, you must have been cringing every time we used one," Ralph said, shaking his head. "All this time we could have had unlimited access."
 
 "Yes," Lucky said. "But I didn't know if I could trust you all, yet."
 

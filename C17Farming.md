@@ -44,6 +44,40 @@ Still, life at Blue Sunrise, was, if not 100% easy, at least far less dangerous 
 
 * * *
 
+James marveled at his cert sheet, as the Hold called it, that piece of yellowfruit-based paper which gave his all important details. He had seen similar things on Earth, which was probably why the name had stuck.
+
+Everything was checked except time for his next level.
+
+> James Algol\
+> Level 0 Citizen
+>
+> Months: ✓✓✓O/\
+> Work experience: ✓✓✓\
+> Discipline record: ✓✓✓✓✓\
+> Taxes paid: ✓✓✓✓✓\
+> Superior Reviews: ✓✓✓✓✓\
+
+In that sense, he had progressed greatly. But then he opened up his stats:
+
+> Strength A: 16+3\
+> Strength B: 8+10\
+> Magic: 0\
+> Speed: 8+7\
+> Trickery: 4\
+>
+> Magic use: 0%\
+> Wounds: 0%
+
+Almost nothing had changed.
+
+What was he doing? he wondered. Holds had no concept of accepting records from other Holds. And Trogs didn't care at all. For the most part, he was spinning his wheels here.
+
+Yes, soon enough he could own his own field, and make much more money. But until he was Level 2, he couldn't even legally buy more weapons and armor.
+
+And even then, what would he do?
+
+* * *
+
 One day he heard the noise of horns, and headed to the gates. Sure enough, a Trog Tribe had arrived.
 
 The Stealthy Snakes were neither stealthy nor particularly reptilian, but they had goods to sell. An officer with a green and white bandana haggled over rare gear.

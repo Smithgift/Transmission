@@ -20,7 +20,7 @@ James realized Stella wasn't there when Lucky had mentioned the basic details. B
 
 James breath caught in his throat. He wasn't unlucky in those first lives in the Underneath, any more than Lucky was actually lucky. That dungpit Perfect had to have been sending him those crabs whenever he had stopped to take a breath.
 
-"Nork," Ralph said. He slammed his fist in the ground. "Those sick nurckers. They've been getting off on all our suffering, haven't they?"
+"Nurck," Ralph said. He slammed his fist in the ground. "Those sick nurckers. They've been getting off on all our suffering, haven't they?"
 
 "Yes. And they'll keep doing so, until we reach the fourth world."
 
@@ -56,7 +56,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "I've been trying to get there for years for that very reason. But that said," she turned to Violet and Ralph. "Depending on what you do, the Perfects might take pity on you. If you turned on us right now..."
 
-"Nork, Lucky, you know I would never do that to you," Ralph said. "Not after you've been so honest with us about you even being a Perfect."
+"Nurck, Lucky, you know I would never do that to you," Ralph said. "Not after you've been so honest with us about you even being a Perfect."
 
 "A what?" Stella asked.
 

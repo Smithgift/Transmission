@@ -46,7 +46,7 @@ James stopped. Everything she was saying made sense. Did he still want to lash o
 
 "Far too long. I used to tell people outright. Most of them had the same reaction you just did. Some tried to convince me to get them Transmitted back, as if I had any power to do that. A few..." she took a breath. "A few took their revenge on me. I've been beaten more times than I can count. Tortured several times. Raped twice." She said all this matter-of-factly, and met their eyes as she said it. "It's safer to be an Unwanted than a Perfect."
 
-"Nork," Ralph said, shaking his head. "To be honest, if I didn't know you were Lucky, I'd have... probably left you to die."
+"Nurck," Ralph said, shaking his head. "To be honest, if I didn't know you were Lucky, I'd have... probably left you to die."
 
 "I _am_ Lucky," she said. "Before this, I was Athena Perl. But people will listen to Lucky the Unwanted and they won't make her suffer, either."
 
@@ -138,7 +138,7 @@ The campfire was deathly quiet.
 
 "I don't know. That is all Mother said he said. And this was after Mother pleaded with him for any more information."
 
-"Nork," Ralph said. "Now I don't know if I wanted to know after all."
+"Nurck," Ralph said. "Now I don't know if I wanted to know after all."
 
 "That's why I warned you."
 

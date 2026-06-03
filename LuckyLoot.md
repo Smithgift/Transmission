@@ -1,5 +1,20 @@
 
 
+Lucky and Ralph looked intently at the door. "Looks like a party slow if you throw something," Lucky said.
+
+"I think so, too."
+
+"You can read that?" James blurted.
+
+"After you've opened enough doors, you start seeing the patterns on the weird symbols."
+
+"Yeah," Lucky said. "Throw means release anything from your hand. So don't drop your weapon."
+
+"Understood," James said.
+
+Lucky pushed the door, and they charged in.
+
+
 
 
 James reached for a jar, but Ralph grabbed his arm. "Only Lucky opens jars."
@@ -18,7 +33,7 @@ The third jar was more normal stuff, but the fourth contained a bunch of salves 
 
 "I guess I'm now a believer," James said, watching in awe.
 
-Lucky looked back at him with an strong yet undecipherable. "Did you ever want an Unwanted?"
+Lucky looked back at him with an strong yet undecipherable look. "Did you ever want an Unwanted?"
 
 James shook his head. "I mean, it's not like I hated them, but... sorry for whatever you've gone through."
 

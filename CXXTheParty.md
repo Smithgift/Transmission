@@ -7,7 +7,7 @@ He could find another Trog Tribe.
 
 * * *
 
-Who knew if taverns existed and Wayfarers inevitably gathered there, or if taverns were built and then they gathered there? 
+Who knew if Wayfarers needed somewhere to gather, or if taverns were built and then Wayfarers gathered there? 
 
 
 James decided to start with the top and work his way down. 
@@ -15,7 +15,7 @@ James decided to start with the top and work his way down.
 
 
 
-This party had high-end gear. One bulky, muscular Worker sat on a huge chair, laughing and pounding the table with mirth. A Thinker with them looked around calmly. Another, tall worked picked at his food. And finally, an Unwanted with bonnet tightly bound to her hair, looked around with weary eyes, as if ground down over and over again.
+This party had high-end gear. One bulky, muscular Worker sat on a huge chair, laughing and pounding the table with mirth. A Thinker with them looked around calmly. Another, tall worker picked at his food. And finally, an Unwanted with bonnet tightly bound to her hair, looked around with weary eyes, as if ground down over and over again.
 
 Only four, so they probably wanted one more. James sat beside them. "Hey, looking for another member?"
 
