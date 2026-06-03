@@ -8,7 +8,7 @@ The only other human outside was the older Thinker lady, who looked worse for th
 
 "Barely. I think we're the only ones who escaped."
 
-"Unless those inside killed it," James said.
+"Unless those inside killed the Guardian," James said.
 
 The older lady shook her head. "I doubt it."
 
@@ -58,7 +58,7 @@ The outer doors had not budged, as if satisfied it had made its point about arro
 
 * * *
 
-Although it felt like trespassing, Wanda insisted on turning through all the goods the Dragon Trogdolyte Tribe had left behind now that it was left behind. Boris had been good, however, since by both of their reckoning they had the best equipment left. But they found a bunch of scrolls of unknown use---but scrolls nonetheless.
+Although it felt like trespassing, Wanda insisted on turning through all the goods the Dragon Trogdolyte Tribe had left behind now that the Tribe no longer existed. Boris had been good, however, since by both of their reckoning they had the best equipment left. But they found a bunch of scrolls of unknown use---but scrolls nonetheless.
 
 After that, James traced back the caverns. The two of them were by themselves, but they both had good equipment and good stats. Most of the time they spent in their own minds, thinking through what had happened and what went wrong. But ultimately, it was the Tribe's failure. Maybe if they had better equipment, better tactics...
 
