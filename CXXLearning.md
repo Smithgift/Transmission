@@ -7,7 +7,7 @@ They all gathered around.
 
 Lucky took out a stone bowl, dropped a scroll into it, and then put it into the fire. The scroll blazed blue, but after a few seconds, it turned into ash. She dipped her finger in the ash and drew a circle on the back of her left hand, and it flashed and disappeared. The rest of the ashes in the bowl also disappeared. "That's it. But you need to do it when you already have access to that color of magic."
 
-"How the nork was anyone ever supposed to figure _that_ out?" Ralph about yelled.
+"How the nurck was anyone ever supposed to figure _that_ out?" Ralph about yelled.
 
 "Oh, it's explained in the manual. It's just that the Perfects don't give it out, and it's written in Oru."
 
@@ -21,7 +21,7 @@ Lucky took out a stone bowl, dropped a scroll into it, and then put it into the 
 
 "Anything from temporary paralysis to being set on fire to being turned into a tree. And I'm not even joking about the last one."
 
-"How the nork are you supposed to know what to chant?" Ralph asked.
+"How the nurck are you supposed to know what to chant?" Ralph asked.
 
 "Oh, it's written in Oru on the scroll. You just need to be able to read Oru. I will teach you, but it's hard to learn the language, and it's tonal, so if you get the pitches wrong, it's not going to work."
 

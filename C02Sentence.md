@@ -25,7 +25,7 @@ They did not waste time. He heard his comm ding when arriving back at his distri
 
 Tomorrow, then. He'd heard of people getting anywhere up to a month to sort out their affairs prior to being yanked out of them, but chances were the Perfect had pulled some strings to ruin his life further.
 
-What the nork was the point of all this? he wondered. The Perfects were supposed to be exemplars of all that was good, but as far as he could tell they were the worst of the worst. So why did birth give them right to do anything?
+What the nurck was the point of all this? he wondered. The Perfects were supposed to be exemplars of all that was good, but as far as he could tell they were the worst of the worst. So why did birth give them right to do anything?
 
 But there was no use thinking about it. It would cease mattering to him very soon, unless there were Perfects in the Other Worlds.
 

@@ -10,7 +10,7 @@ James reached for a jar, but Ralph grabbed his arm. "Only Lucky opens jars."
 
 Lucky inspected a jar, thought about it, then inspected a different jar, rapping on it a few times. Then she opened it, to get a sword that blazed with green fire, a tower shield, three scrolls, and a glowing stone.
 
-"What the _nork?"_ James asked, as Lucky looted another jar, with similarly insane loot.
+"What the _nurck?"_ James asked, as Lucky looted another jar, with similarly insane loot.
 
 "I don't know how she does it, but Lucky is _the_ luckiest Transmitted in all the Underneath," Ralph said.
 

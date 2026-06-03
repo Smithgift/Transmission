@@ -52,7 +52,7 @@ The campfire watched Lucky without a word.
 
 "They found they could still activate Oru technology if they did. Depending on what caste used it, different features on the satellite functioned."
 
-"If it's debris, how the nork did any of it still work?" Ralph asked.
+"If it's debris, how the nurck did any of it still work?" Ralph asked.
 
 "I don't know. I believe it had the first nanites on it that assembled a new satellite when provided with materials. But I don't know much more about the satellite than that. What I do know about is this place." Lucky tapped the ground next to her. "How many of you played games in your spare time?"
 

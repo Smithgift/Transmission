@@ -20,7 +20,7 @@ James also did, but didn't have the heart to do so. He opened up his stats scree
 
 "Wanda D."
 
-"How the nork did someone like you end up down here?"
+"How the nurck did someone like you end up down here?"
 
 "I was a librarian. The Perfects ordered a book destroyed and all references to its existence erased. I refused. So now I'm here."
 
@@ -68,7 +68,7 @@ But Stella didn't believe in luck. James had never gotten a straight answer abou
 
 "What got a nice young man like you stuck down here?" Wanda interrupted his thoughts.
 
-James considered snapping back. But they had both seen some serious dung over the last few watches. "I loved a Thinker girl. We were meeting in secret, and a Perfect found out and wanted her. I slapped the nork out of him, and we both got Transmitted." Though, James realized, he didn't _know_ Stella was Transmitted.
+James considered snapping back. But they had both seen some serious dung over the last few watches. "I loved a Thinker girl. We were meeting in secret, and a Perfect found out and wanted her. I slapped the nurck out of him, and we both got Transmitted." Though, James realized, he didn't _know_ Stella was Transmitted.
 
 The alternative was too grim to think about, ironically. "I suppose that's like me and---Contact!" Wanda cut herself off.
 

@@ -6,7 +6,7 @@ They all stared at her.
 
 No one moved.
 
-"If you're angry about the Scale that sent you here, I got norked by it, too," she added. "Now before we all die of monsters, let's chop down _that_ tree."
+"If you're angry about the Scale that sent you here, I got nurcked by it, too," she added. "Now before we all die of monsters, let's chop down _that_ tree."
 
 Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Lily stayed with Lucky, staring at her in a mixture of concern and confusion.
 
@@ -28,7 +28,7 @@ The tree crashed and shattered into logs. James picked up a log and dropped it i
 
 James's anger faltered, as if a tool that had slipped out of oil-slick hands.
 
-"How about we start with 'how the nork did you end up down here?'" Ralph asked.
+"How about we start with 'how the nurck did you end up down here?'" Ralph asked.
 
 "I fell in love with an Unwanted. It wouldn't matter what I did if I had already been married, but my family didn't want the goods damaged before that," She said this calmly, but James wondered if the streak of anger was from being disbelieved now or the original incident.
 

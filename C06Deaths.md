@@ -60,7 +60,7 @@ The crab skittered into view and James stabbed it repeatedly. It clawed at him b
 
 Stella had been right. The system, whatever it was, made no sense. If it was some kind of survival crafting game he'd been exiled into, it had an insanely detailed physics engine, yet at the same time it wouldn't simulate blood.
 
-What the nork?
+What the nurck?
 
 It didn't matter. He checked his stats and saw his red experience bar had grown. That, at least, made sense to him. He could sort of read the "numbers" now, if that's what those symbols were, and saw he was about halfway in that one bar. He just needed to find another monster to kill.
 
@@ -94,7 +94,7 @@ James had thought quite a bit over the last few---lives? Days? Weeks? Whatever t
 
 How was Stella doing? She had to also have been Transmitted by now, though where in the ECoDaIS she was, James had no clue. Being regularly murdered, too, he thought with hatred.
 
-All because the stupid evil Perfects had chosen to ruin his life over nothing but sheer spite. Why the nork did they ever get that name? If he ruled the world, he would---he stopped at a slither.
+All because the stupid evil Perfects had chosen to ruin his life over nothing but sheer spite. Why the nurck did they ever get that name? If he ruled the world, he would---he stopped at a slither.
 
 Yes! Another snake to kill. James knew that each would fill his experience bar about halfway, so if he killed this one...
 

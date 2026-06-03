@@ -16,7 +16,7 @@ At this Lily and Ralph hurried up to the two. "You know how to work that screen?
 
 "Yes." She tapped her nose with her middle finger and held out the screen. Rather than the large empty box, there were layers of colored bars with strange text on them, some shining in gold. But the colors were dull, as if lifeless. "This is the magic screen. Spells I've learned are in there."
 
-"How the nork did you learn spells?" Ralph demanded.
+"How the nurck did you learn spells?" Ralph demanded.
 
 "I'll show you tomorrow."
 

@@ -20,7 +20,7 @@ James realized Stella wasn't there when Lucky had mentioned the basic details. B
 
 James breath caught in his throat. He wasn't unlucky in those first lives in the Underneath, any more than Lucky was actually lucky. That dungpit Perfect had to have been sending him those crabs whenever he had stopped to take a breath.
 
-"Nork," Ralph said. He slammed his fist in the ground. "Those sick norkers. They've been getting off on all our suffering, haven't they?"
+"Nork," Ralph said. He slammed his fist in the ground. "Those sick nurckers. They've been getting off on all our suffering, haven't they?"
 
 "Yes. And they'll keep doing so, until we reach the fourth world."
 
@@ -44,7 +44,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Ah," Stella said, and fiddled with a strand of hair.
 
-"So here we are," James said. "We're either in one norked up game or an even more norked up religious ritual."
+"So here we are," James said. "We're either in one nurcked up game or an even more nurcked up religious ritual."
 
 "They're not exclusive," Lucky said. "It's possible whatever the Oru culture wanted out of this place, it's not anything remotely similar to something in contemporary Earth culture."
 

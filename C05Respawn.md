@@ -44,7 +44,7 @@ Ah. This had to be some kind of crafting screen, right? He just didn't have anyt
 
 He had a mission now. He took a tunnel at random and wandered down it. He kept an ear out for any sign of those awful crabs, but nothing. Not a sound but the trickle of water and echoes from his footsteps
 
-He picked up everything in sight, in the hopes that he could find whatever the nork he needed to make a spear. The moss he could scrape off, but it wouldn't go into his inventory. The bulbs of the plants did go in.
+He picked up everything in sight, in the hopes that he could find whatever the nurck he needed to make a spear. The moss he could scrape off, but it wouldn't go into his inventory. The bulbs of the plants did go in.
 
 James kept wandering. He started to feel hunger, now, but what did he dare eat? Though, he bitterly mused, if he ate something poisonous, it wouldn't be the end of him.
 

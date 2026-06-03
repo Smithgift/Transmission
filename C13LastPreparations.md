@@ -28,7 +28,7 @@ James felt uneasy at the thought. He didn't quite have friends down here---he ha
 
 "Once the Guardian's dead, the doors shut," Gus said. "So you have to be _in_ the Labyrinth to make it to Surface."
 
-"Yeah, that's the trick to it," Drake said. "If you're too cowardly to go inside, you can't go up. But if you go in too far and the Tribe doesn't make it, you're norked. Pick one."
+"Yeah, that's the trick to it," Drake said. "If you're too cowardly to go inside, you can't go up. But if you go in too far and the Tribe doesn't make it, you're nurcked. Pick one."
 
 "I'll go in," James said firmly.
 
@@ -72,7 +72,7 @@ Boris also insisted on filling James's inventory with scrolls, salves, and pills
 
 At last, equipped to the brim, James headed out and found a party forming up. The older Thinker woman who had valiantly been trying to learn combat skills now held her trident with some semblance of correct stance. The others were Trogs James recognized, but didn't really know.
 
-"We're a third line party," Peter, their leader noted. "Scouts go in, Salamanders follow, and then we rush after them. Don't go wandering, though, because if you get lost in the Labyrinth, you're norked."
+"We're a third line party," Peter, their leader noted. "Scouts go in, Salamanders follow, and then we rush after them. Don't go wandering, though, because if you get lost in the Labyrinth, you're nurcked."
 
 "Yes, sir," they all said.
 

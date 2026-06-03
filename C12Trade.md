@@ -103,7 +103,7 @@ But people were people, he mused. Chances were they had their own share of drama
 
 What of people like Tim? Casualties in a war that they never wanted to fight? But maybe that was why the Hold was so paranoid. Something going wrong and a horde of Trogs burning and looting the place must be unthinkable considering all who might be left inside.
 
-Still, though, why assume the Trogs would start the war? Maybe Hold fought Hold, or Holds norked over a Tribe. Who knew?
+Still, though, why assume the Trogs would start the war? Maybe Hold fought Hold, or Holds nurcked over a Tribe. Who knew?
 
 It wouldn't matter, he told himself. In a week or two they'd be at the Labyrinth, and then they'd be fighting for their lives. Tim could enjoy his life in a Hold.
 

@@ -8,7 +8,7 @@ He stepped out into the camp. Was this going to be his new home? Better get used
 
 "Who designed these clothes?" James asked.
 
-"No norking clue," the Trog said. "This is more or less what we find in jars."
+"No nurcking clue," the Trog said. "This is more or less what we find in jars."
 
 "Jars?"
 
