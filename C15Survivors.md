@@ -1,6 +1,6 @@
 ## Survivors
 
-It slammed shut.
+The door slammed shut.
 
 Behind him.
 
@@ -28,7 +28,7 @@ Thankfully, James hadn't been so injured he fell unconscious, though that would 
 
 "We're the only survivors," James said.
 
-"Yes, I realize that," Wanda said. "Could you help me next?
+"Yes, I realize that," Wanda said. "Could you help me next?"
 
 Wanda had been nearly clawed to death on top of luckily not being instantly killed by poison. James had to practically undress her entirely to treat her numerous glowing red wounds. He was glad that, whatever this place was, it had neither bodily fluids or gore.
 

@@ -2,11 +2,11 @@
 
 Life at Blue Sunrise Hold wasn't bad. James wondered if Tim had oversold the amount of leisure, or whether as the new guy the others foisted off the work on him, but he did spend a lot of time working in the fields. But he also had a considerable amount of time to do nothing.
 
-Each of the three major kinds of fruit were tempermental. Bluefruit needed heavily watered, while yellowfruit was fragile to touch. Redfruit was the most tempermental, thriving or failing for no explicable reason. But they had planted an immense amount of each, so even if one field failed, as sometimes they did, there was plenty of other things to eat or use.
+Each of the three major kinds of fruit were tempermental. Bluefruit needed just the right amount of moisture, while yellowfruit was fragile to touch. Redfruit was the most tempermental, thriving or failing for no explicable reason. But they had planted an immense amount of each, so even if one field failed, as sometimes they did, there was plenty of other things to eat or use.
 
 James had briefly worked in the hydroponics on Earth, where it turned out he had a black thumb. But these plants he somehow didn't kill. If he did, the next crop grew rapidly anyway. Bluefruit in particular needed to be harvested every twenty-four days, since if properly cared for they could be an insanely productive crop. Sometimes they had so much bluefruit that they filled entire warehouses with it.
 
-But other times the whole crop would arbitrarily fail, and they needed to eat their excess. James knew those times came, because Tim mentioned it, but Tim didn't like to talk about it, either.
+But other times every crop would arbitrarily fail, and they needed to eat their excess. James knew those times came, because Tim mentioned it, but Tim didn't like to talk about it, either.
 
 Days passed into weeks, and weeks into months, without that happening. James found himself making friends---actual friends---and spending time at the many events the Hold hosted to keep people entertained.
 
@@ -34,7 +34,7 @@ James raised his eyebrow. "I never heard of this."
 
 * * *
 
-But even with the prospect of future rewards and more rights, James couldn't stop thinking of Stella. And when he went to buy food, he never shared inventories, lest they see what he was hiding. They were watching him, he could tell.
+But even with the prospect of future rewards and more rights, James couldn't stop thinking of Stella. And when he went to buy food, he never shared inventories with those running the stalls, lest they see what he was hiding. They were watching him, he could tell.
 
 He wouldn't give in, though, not unless they confronted him. 
 
@@ -70,7 +70,7 @@ In that sense, he had progressed greatly. But then he opened up his stats:
 
 Almost nothing had changed.
 
-What was he doing? he wondered. Holds had no concept of accepting records from other Holds. And Trogs didn't care at all. For the most part, he was spinning his wheels here.
+What was he doing? he wondered. Holds had no concept of transferring any kind of credit from other Holds, or even currency. And Trogs didn't care at all. For the most part, he was spinning his wheels here.
 
 Yes, soon enough he could own his own field, and make much more money. But until he was Level 2, he couldn't even legally buy more weapons and armor.
 

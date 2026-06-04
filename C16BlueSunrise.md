@@ -4,7 +4,7 @@ Just like that, James was once again alone.
 
 He considered sitting down and crying. But suddenly an anger he didn't realize he felt flooded through him. Anger at the Perfects for their tyranny. Anger at the Perfects for sending him here. Anger at this twisted system that tormented them.
 
-He took a deep breath, and walked on.
+He took a deep breath, and looked through the fallen equipment. He put the best in his inventory, wished he knew what to say, and walked on.
 
 * * *
 
@@ -18,7 +18,7 @@ Their leader shook his head. "Sorry to hear that, but we need proof you aren't a
 
 "Ask Tim Ruby," James said. "He knows me."
 
-"I know Tim," another Holdsman piped up. "He's the guy whose always sleeping by the fires."
+"I know Tim," another Holdsman piped up. "He's the guy who's always sleeping by the fires."
 
 The leader looked at James with slightly less suspicion. "This way," he said.
 
@@ -34,7 +34,7 @@ A few minutes later, Tim came out with a group of other Holdsmen, overjoyed. "Ja
 
 James found himself hugging him. "The rest of us didn't make it."
 
-"You're not going to try again, right? Right? You're going to stay with us, now?"
+"You're not going to try again, right?" Tim looked at him with wide eyes. "Right? You're going to stay with us, now?"
 
 "On that subject," a Thinker woman said. "We're willing to let you in, but only if you agree to join our Hold."
 
@@ -60,7 +60,7 @@ James marveled at the scale of the fields. Every last space they could possibly 
 
 * * *
 
-James hated paperwork, but the Trogs tended to eschew it for the sake of efficiency. The Holds, on the other hand, seemed to think the more papers you filled out, the closer you were tied to them. James found himself signing and filling out so many documents he felt like he was back on Earth. One was a lease for an apartment, and another was an overview of the entire laws of the Hold.
+James hated paperwork, but thankfully the Trogs tended to eschew it for the sake of efficiency. The Holds, on the other hand, seemed to think the more papers you filled out, the closer you were tied to them. James found himself signing and filling out so many documents he felt like he was back on Earth. One was a lease for an apartment, and another was an overview of the entire laws of the Hold.
 
 James normally read documents before signing them, but the Thinker woman in charge of new arrivals kept glaring at him. He ended up signing them fast. He didn't have much option, in any case.
 
@@ -84,5 +84,6 @@ He took off his armor, but hesitated. He would need them later. He dug through h
 
 There. He could give them the rest and pretend that was all of it. They probably wouldn't even notice it wasn't the original things he was wearing.
 
-He undid the Trog bandana at last. The Dragon Trog Tribe was officially disbanded by the last member. He stared at the piece of cloth, and hid it under his bed. He would not forget them.
+He undid the Trog bandana at last. The Dragon Trog Tribe was officially disbanded by the last member. He stared at the piece of cloth, and hid it under his bed.
 
+He would not forget them.
