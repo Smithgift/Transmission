@@ -8,14 +8,7 @@ People you should know:
 
 James Algol: Our hero, an ordinary Worker Transmitted to another world.\
 Stella Cobol: James's forbidden Thinker girlfriend who, last he heard, was also going to be transmitted.\
-
-The Dragon Trogdolyte Tribe:
-
-Drake: A Salamander and party leader.\
-Kate: A Thinker with Drake's party.\
-Gus: A large and thoughtful worker in Drake's party.\
-Boris: The quartermaster of the Dragon Trog Tribe.\
-Peter: A party leader.
+Tim Ruby: A happy Holdsman in the Blue Sunrise Hold.
 
 The story so far:
 
@@ -46,3 +39,11 @@ Chapter 10: James can't join Drake's epic party of Salamanders, because he's sti
 Chapter 11: The Salamanders of Drake's party are unmoved by the death. James go on an adventure with a party, where they kill some monsters and eventually find a room. These rooms either have a door trap, a room curse, or both. They also have a monster. After charging inside (and James accidentally setting off a room curse) they get some phat loot, including a sword and a scroll for James.
 
 These scrolls are one-use magic spells, but Boris tells him this the scroll is merely "reduce hunger," a common scroll that's more or less just an easy-to-carry meal. He still gets credit for it, and keeps his cool new sword.
+
+Chapter 12: Months later, the Dragon Trogdolyte Tribe prepares to assault a Labyrinth, one of the dungeons that guards the gates between worlds. They head to the Blue Sunrise Hold, where James meets up with Tim Ruby, an old friend who was transmitted for slacking. James learns that there have been Trog-Hold wars, as recent as years ago, and feels subtly uncomfortable.
+
+Chapter 13: James learns the rules of the Labyrinth: after opening the door, the would-be worldclimbers have a set time to find their way through the maze until they find the Guardian, and kill it. There's a time limit, though: if enough time passes, the outer doors shut, and everyone inside must fight or die.
+
+Boris gives James some extra-sweet gear, since if the Tribe doesn't make it, it's wasted, and if they do make it, the next world's machines can produce higher-quality items for cheaper.
+
+Chapter 14: The Tribe assaults the Labyrinth and gets deep inside. However, there are sheer swarms of scorpions in the boss room, and although they manage to kill most of them and the spawners, they are unable to kill the sub-Guardians fast enough to take on the true Guardian, a giant scorpion. Drake and his party are killed, and an officer orders every to retreat. James dives for the door...
