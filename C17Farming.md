@@ -2,7 +2,7 @@
 
 Life at Blue Sunrise Hold wasn't bad. James wondered if Tim had oversold the amount of leisure, or whether as the new guy the others foisted off the work on him, but he did spend a lot of time working in the fields. But he also had a considerable amount of time to do nothing.
 
-Each of the three major kinds of fruit were tempermental. Bluefruit needed just the right amount of moisture, while yellowfruit was fragile to touch. Redfruit was the most tempermental, thriving or failing for no explicable reason. But they had planted an immense amount of each, so even if one field failed, as sometimes they did, there was plenty of other things to eat or use.
+Each of the three major kinds of fruit were temperamental. Bluefruit needed just the right amount of moisture, while yellowfruit was fragile to touch. Redfruit was the most temperamental, thriving or failing for no explicable reason. But they had planted an immense amount of each, so even if one field failed, as sometimes they did, there was plenty of other things to eat or use.
 
 James had briefly worked in the hydroponics on Earth, where it turned out he had a black thumb. But these plants he somehow didn't kill. If he did, the next crop grew rapidly anyway. Bluefruit in particular needed to be harvested every twenty-four days, since if properly cared for they could be an insanely productive crop. Sometimes they had so much bluefruit that they filled entire warehouses with it.
 
@@ -22,7 +22,7 @@ Level 1 citizenship was given to those Holdsmen who had shown enough loyalty to 
 
 "Wait, you're Level _2?_" James asked Tim.
 
-"Well..." he said, embarassed. "I got it mostly through senority."
+"Well..." he said, embarrassed. "I got it mostly through seniority."
 
 "What's it like?" James asked.
 
@@ -80,11 +80,11 @@ And even then, what would he do?
 
 One day he heard the noise of horns, and headed to the gates. Sure enough, a Trog Tribe had arrived.
 
-The Stealthy Snakes were neither stealthy nor particularly reptilian, but they had goods to sell. An officer with a green and white bandana haggled over rare gear.
+The Stealthy Snakes were neither stealthy nor particularly reptilian, but they had goods to sell. An officer with a green and white bandanna haggled over rare gear.
 
 James watched in interest, now on the other side, as the Hold unloaded some of its excess bluefruit in exchange for the ore that the Trogs could not process on their own.
 
-He went up to a random Trog, wearing the equipment and special bandana of a Salamander. "Where are you going?"
+He went up to a random Trog, wearing the equipment and special bandanna of a Salamander. "Where are you going?"
 
 The Trog shrugged. "Next place, wherever that is."
 

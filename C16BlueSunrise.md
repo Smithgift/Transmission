@@ -78,12 +78,12 @@ He noticed the Holdsmen all tended to eye his gear. And he also noticed that alm
 
 * * *
 
-James found his new apartment small but definitely comfortable. It had a bed, a desk, and a chair. Nothing else, but definitely better than the Trog Tribe's dormatories.
+James found his new apartment small but definitely comfortable. It had a bed, a desk, and a chair. Nothing else, but definitely better than the Trog Tribe's dormitories.
 
 He took off his armor, but hesitated. He would need them later. He dug through his inventory and emptied it, but put some of his best gear back in his inventory.
 
 There. He could give them the rest and pretend that was all of it. They probably wouldn't even notice it wasn't the original things he was wearing.
 
-He undid the Trog bandana at last. The Dragon Trog Tribe was officially disbanded by the last member. He stared at the piece of cloth, and hid it under his bed.
+He undid the Trog bandanna at last. The Dragon Trog Tribe was officially disbanded by the last member. He stared at the piece of cloth, and hid it under his bed.
 
 He would not forget them.
