@@ -64,7 +64,7 @@ They all switched to see them.
 
 "Yes. The stars are just one source. Certain items radiate color, as well as certain monsters, believe it or not. As do some places. But if you use a scroll, the burning provides a single blast of color for one use of the spell. That's why using them is so wasteful."
 
-"Nurrk, Lucky, you must have been cringing every time we used one," Ralph said, shaking his head. "All this time we could have had unlimited access."
+"Nurck, Lucky, you must have been cringing every time we used one," Ralph said, shaking his head. "All this time we could have had unlimited access."
 
 "Yes," Lucky said. "But I didn't know if I could trust you all, yet."
 

@@ -30,7 +30,19 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "That's correct," Lucky said. "I don't know how it works, but you have to pay so much money to the Supreme Council to get so many credits. And then depending on what you want to do or what world you're in, it costs different amounts of credits."
 
-"And the fourth world is too expensive?"
+"Though," Stella said. "I'm confused. If the Perfects can send monsters, wouldn't it make more sense for us to stay in a big city?"
+
+Lucky shook her head. "They can trigger a monster to be sent based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. A city like New London would have such immense total _hamartia_ that it could summon a Titan outright."
+
+"Does the cost of summoning not go up, then?" Violet asked.
+
+"It does go up, but let's just think about it. I and two other people the Perfects really hate are in a group together. Even for the thousands of credits it would take to summon a Titan, it's an irresistable opportunity to nurck all of us over. We can't let them have that opportunity."
+
+"But then we can't go anywhere," Violet said.
+
+"That's correct. Any city is potentially a death trap for us. Our only option is to get to the fourth world, one way or another.
+
+"The fourth world is too expensive?" Stella asked.
 
 "You just can't, period. The cameras don't even track you beyond that point."
 
@@ -57,12 +69,6 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 "I've been trying to get there for years for that very reason. But that said," she turned to Violet and Ralph. "Depending on what you do, the Perfects might take pity on you. If you turned on us right now..."
 
 "Nurck, Lucky, you know I would never do that to you," Ralph said. "Not after you've been so honest with us about you even being a Perfect."
-
-"A what?" Stella asked.
-
-Lucky briefly pulled down her bonnet.
-
-"...Oh."
 
 "I'd love to see the fourth world," Violet said. "Not being spied upon is an added bonus."
 

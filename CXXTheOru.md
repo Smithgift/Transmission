@@ -12,6 +12,17 @@ They only stopped when Lucky found one of her special trees. The strange stars s
 
 "No, I said _both of you_ are in grave danger, and if you will let me start my story I can get to it."
 
+
+"I'm sorry," Stella said. "I know James trust you, but I don't really know who you are."
+
+Lucky pulled off her bonnet. "Call me Lucky. But my real name is Athena Perl."
+
+"I see," Stella said, stunned. "I... err..."
+
+"We all had that reaction, believe me," Ralph said.
+
+"The danger," James insisted.
+
 "Just let her talk," Violet suggested.
 
 The campfire watched Lucky without a word.

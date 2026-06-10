@@ -58,7 +58,7 @@ The campfire fell quiet.
 
 "The Unwanted that you fell in love with."
 
-"Joshua," she said. "He wasn't Transmitted. We Perfects executed him."
+"Joshua," she said. "He wasn't Transmitted. We executed him."
 
 Another quiet passed. Lucky looked around, as if waiting for a reaction.
 
