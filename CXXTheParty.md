@@ -1,4 +1,4 @@
-## Wayfarer
+## Wayfarers
 
 James stayed awake that night, thinking.
 
