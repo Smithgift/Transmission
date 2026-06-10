@@ -2,20 +2,37 @@
 
 James stayed awake that night, thinking.
 
-He could find another Trog Tribe.
+He could find another Trog Tribe. That was the simplest. Chances were they'd want any warm body, much like the Dragons. But he knew it was only going to be a repeat of the previous situation. Unless he found a Tribe both elite and wanting to worldclimb, he was no better off than in the Hold.
 
+That left Wayfarers. He didn't know how he might persuade them to take on someone who was still relatively new. He could show them his stats so they could see, but without gear, he'd be a fifth wheel until they either paid for more gear or he found it in chests.
+
+But there were Wayfarers constantly coming and going. They brought useful materials and bought high-end equipment, so most Holds welcomed them.
+
+It was worth a shot.
 
 * * *
 
-Who knew if Wayfarers needed somewhere to gather, or if taverns were built and then Wayfarers gathered there? 
+Who knew if Wayfarers needed somewhere to gather, or if taverns were built and then Wayfarers gathered there? But taverns existed, the one clearly-marked structure near the gates. James stepped in, and immediately found himself underwhelmed.
 
+Everyone who had played a fantasy game had an idea of what a tavern _should_ look like, but actually making one with the materials found in the Underneath wasn't so easily. It looked more like a particularly ugly bar than a tavern. He looked for a crude stone table to sit at.
 
-James decided to start with the top and work his way down. 
+He had debated whether to wear his Dragon bandana as an ordinary Transmitted or a Salamander, and decided to put them half-way. That was how he would pitch himself. Someone with skills and potential, just not quite there yet. James had also decided to start with the top and work his way down. 
 
+He found one group. "Hey, there---"
 
+"Go away," their leader muttered.
 
+James headed to the next party. "I was wondering if you needed a new member."
 
-This party had high-end gear. One bulky, muscular Worker sat on a huge chair, laughing and pounding the table with mirth. A Thinker with them looked around calmly. Another, tall worker picked at his food. And finally, an Unwanted with bonnet tightly bound to her hair, looked around with weary eyes, as if ground down over and over again.
+"Stats, please."
+
+James put them out.
+
+They laughed uproarously. "Find some other losers," one mocked.
+
+James stood up and tried the next party.
+
+The very last sat in the corner, as if to protect one of their members from the crowds in the tavern. One bulky, muscular Worker sat on a huge chair, laughing and pounding the table with mirth. A Thinker with them looked around calmly. Another, tall worker picked at his food. And finally, cornermost, but given significant space, an Unwanted. Her bonnet was tightly bound to her hair, and she looked around with weary eyes, as if ground down over and over again.
 
 Only four, so they probably wanted one more. James sat beside them. "Hey, looking for another member?"
 
@@ -27,9 +44,11 @@ Only four, so they probably wanted one more. James sat beside them. "Hey, lookin
 
 "I like him already," Violet said.
 
-"Where'd you get your equipment?" Ralph asked.
+"What happened to the Tribe?" Ralph asked.
 
 "We assaulted a Labyrinth and didn't make it," James said. "Only two of us survived, and then the other didn't make it back here."
+
+"Nurcking shame. Met some good people with the Dragons," Ralph said.
 
 "How many?" Lucky asked. Her voice was quiet.
 
