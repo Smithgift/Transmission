@@ -47,3 +47,9 @@ Chapter 13: James learns the rules of the Labyrinth: after opening the door, the
 Boris gives James some extra-sweet gear, since if the Tribe doesn't make it, it's wasted, and if they do make it, the next world's machines can produce higher-quality items for cheaper.
 
 Chapter 14: The Tribe assaults the Labyrinth and gets deep inside. However, there are sheer swarms of scorpions in the boss room, and although they manage to kill most of them and the spawners, they are unable to kill the sub-Guardians fast enough to take on the true Guardian, a giant scorpion. Drake and his party are killed, and an officer orders every to retreat. James dives for the door...
+
+Chapter 15: Only James and Wanda, another Trog, escape. They loot the camp for whatever they can find and, for lack of anything else, head back to the Blue Sunrise Hold. But on the way, a group of trolls attacks and kills Wanda, leaving James alone.
+
+Chapter 16: James is picked up by a patrol of the Blue Sunrise Hold. The Hold agrees to let him stay as long as he behaves, including selling his items to him. He decides to keep some **MINOR RETCON ALERT** in his inventory or under his bed as needed.
+
+Chapter 17: James takes to life in the Hold as a new Level 0 Citizen. While the Hold is not an unpleasant place to live, he notices that the same patterns of the Scale are repeated here, including tiers of citizenry and taxation. When a Trog Tribe passes by, he realizes Trogs may not be the answer either, since this Tribes does not want to worldclimb, either. 
