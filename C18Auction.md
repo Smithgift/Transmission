@@ -18,7 +18,7 @@ Tim dropped to a whisper. "It's an auction."
 
 "I can't talk about it."
 
-Well, it was worth seeing, at least. He didn't have much else to do. He wasn't good at chess, and he wasn't a writer who would enjoy the critique group, and most of the other activities didn't interest him, either. What was the harm?
+Well, it was worth seeing, at least. He didn't have much else to do. He wasn't good at chess, and he wasn't a writer who would enjoy the critique groups, and most of the other activities didn't interest him, either. What was the harm?
 
 * * *
 
@@ -70,7 +70,7 @@ But still! Was _this_ why Holds feared Trogs? As the items became enchanted weap
 
 "---Two hundred!" the woman beside him eagerly said.
 
-James stared, unable to process the insane weapon. Phoenix Swords would keep you alive even beyond your wound meter, although eventually with enough damage even they couldn't keep you alive. He had heard of them spoken of in whispers or tall tales, and the Dragon Trog Tribe didn't even possess one. For someone to have found or crafted one, and then risked an already priceless possession on enchanting it again...
+James stared, unable to process the insane weapon. Phoenix Swords would keep you alive even beyond your wound meter, although eventually with enough damage even they couldn't keep you alive. He had heard of them spoken of in whispers or tall tales, and the Dragon Trog Tribe didn't possess even one. For someone to have found or crafted one, and then risked an already priceless possession on enchanting it again...
 
 "Five hundred! Five hundred!" the woman squealed in excitement.
 
@@ -80,7 +80,7 @@ And then maybe forget about Stella after getting so much.
 
 "Sold! One million two hundred forty Sunbucks." The crowd cheered at the happily shrieking woman beside James. "And that's all, folks. Enjoy the rest of your day."
 
-The Level 2s didn't dissipate, though, but chatted with each other about their rare finds. James followed the excited woman until he had a chance to speak with her. "Worth it?" he asked.
+The crowd of Level 2s didn't dissipate, though, but chatted with each other about their rare finds. James followed the excited woman until he had a chance to speak with her. "Worth it?" he asked.
 
 "Oh, yes! It'll be the prize item in my collection."
 

@@ -1,6 +1,6 @@
 ## Risk Management
 
-Of course. James doubted that Tim had been in on the plot, but why not get him out of the room and sweep it while he wasn't looking? It was too busy around meals to search, but if he was out and about... without his items in his inventory.
+Of course. James doubted that Tim had been in on the plot, but chances were they had given him that extra ticket for this reason. Why not get James out of the room and sweep it while he wasn't looking? It was too busy around meals to search, but if he was out and about... without his items in his inventory.
 
 He slammed his hand on the chair and cried out. But what could he do? He wasn't legally allowed to own it.
 
@@ -8,7 +8,7 @@ Perhaps. But it was still theft.
 
 * * *
 
-The next morning, he approached the guard's office and strode in. "I'd like to report a theft," James said.
+The next morning, he approached the guards' office and strode in. "I'd like to report a theft," James said.
 
 The clerk, a Worker, looked up. "Yes?"
 
@@ -26,7 +26,7 @@ A female Watcher in armor came out and glared at James. "What is the meaning of 
 
 "You stole my items!" James shouted.
 
-"You mean your illegal goods."
+"You mean your illegal goods?"
 
 "Yes!"
 
@@ -74,7 +74,7 @@ James didn't expect to be grappled, which was why he was unprepared when the gua
 
 * * *
 
-The next morning, they brought him before not merely an Arbiter, but a woman with Healer-green hair wearing the white gown of the Supreme Council of the Hold. A council, James bitterly mused, little different from the absolute rulers of the Prefect.
+The next morning, they brought him before a woman with Healer-green hair wearing the white gown of the Supreme Council of the Hold. A council, James bitterly mused, little different from the absolute rulers of the Prefect.
 
 "James Algol," she said. "We let you join out of pity, and yet you have chosen to disobey our rules."
 

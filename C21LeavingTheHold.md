@@ -2,7 +2,7 @@
 
 Somewhere towards the end of the meal, James asked "Do you have any spare gear?"
 
-"We'll get you whatever you want," Ralph said. "Let's go outfit James and then head on our way."
+"We'll get you whatever you want," Ralph said. "Let's get you outfited and then head on our way."
 
 James felt relief, then wondered why they had so nonchalantly offered to pay for his gear. Not that he wanted to argue, but...
 
@@ -50,7 +50,7 @@ Tim was waiting at the gate, tears in his eyes. "You're... you're really going?"
 
 James didn't answer.
 
-"Just be safe," Tim said, his voice dropping to a whisper
+"Just be safe," Tim said, his voice dropping to a whisper.
 
 "I'll try," James said.
 
@@ -58,11 +58,11 @@ James didn't answer.
 
 "But I'd be without Stella," James said.
 
-Tim frowned, but didn't answer.
+Tim frowned, but didn't say a word.
 
-"We might be back," Violet said. "We tend to travel in circles."
+"We might be back," Violet offer. "We tend to travel in circles."
 
-James didn't add that there was a possibility the Hold wouldn't see him back.
+James didn't add that there was a possibility the Hold wouldn't let him back in.
 
 * * *
 
