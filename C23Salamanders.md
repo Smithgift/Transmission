@@ -6,7 +6,7 @@ And she indeed shied away from touch. When they visited Holds, they always made 
 
 But Ralph was right. Their party really was welcome wherever they went, since they had so much loot they could more or less dump it on a Hold to get whatever they needed. More than once James saw a Hold subtly suggest they stick around.
 
-For Lucky's part, she seemed to trust the rest of the party a little, and as far as James could tell she was with them entirely willlingly. But she still never got too physically close to anyone, and would sometimes head off by herself.
+For Lucky's part, she seemed to trust the rest of the party a little, and as far as James could tell she was with them entirely willingly. But she still never got too physically close to anyone, and would sometimes head off by herself.
 
 * * *
 
@@ -87,7 +87,7 @@ Scouts approached, in the colorful yellow bandannas of the Lion Trogdolyte Tribe
 
 "Oh! Funny you should mention that," the scout said. "We'll attack tomorrow, too. We can join forces."
 
-Ralph looked to Lucky, who shook her head voiceriferously. Fred opened his mouth to speak, but Lucky shot him a death glare, and he didn't. "We'll talk about it," Ralph said, and motioned a thumbs-up towards Lucky.
+Ralph looked to Lucky, who shook her head vociferously. Fred opened his mouth to speak, but Lucky shot him a death glare, and he didn't. "We'll talk about it," Ralph said, and motioned a thumbs-up towards Lucky.
 
 "All right," the scout said. "You sure you don't want to share our camp at least?"
 

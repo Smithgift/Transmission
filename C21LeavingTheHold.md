@@ -8,7 +8,7 @@ James felt relief, then wondered why they had so nonchalantly offered to pay for
 
 * * *
 
-He didn't have to wonder for long. They headed to one of the structures outside the inner circle. James could feel the looks of the guards, but they softed on seeing Lucky.
+He didn't have to wonder for long. They headed to one of the structures outside the inner circle. James could feel the looks of the guards, but they softened on seeing Lucky.
 
 The wooden door to the unmarked structure opened with a wiry, suspicious man glaring outside... then immediately turning to a massive smile. "Lucky! I didn't know you were in the Hold. Please, come in. I see you have a new friend!"
 

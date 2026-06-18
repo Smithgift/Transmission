@@ -86,7 +86,7 @@ In the middle of the second day away from Blue Sunrise, they found the marks mar
 
 Down on the lowest levels, the tunnels were thin enough that the party had to go single-file, though there was a strange amount of headroom. James was understandably in the middle as the weakest member, and he didn't argue---he felt nervous.
 
-They stepped into a larger cave. "Bats!" Violet called, and James wielded his spear. Lucky threw darts and got several, and Ralph swung his bola and got another. James managed to spear one, and saw it had a singificantly incorrect number of wings, before disappearing into a pile of said wings. He shuddered.
+They stepped into a larger cave. "Bats!" Violet called, and James wielded his spear. Lucky threw darts and got several, and Ralph swung his bola and got another. James managed to spear one, and saw it had a significantly incorrect number of wings, before disappearing into a pile of said wings. He shuddered.
 
 "Let's keep going," Ralph said. "If you stick around in one place too long, you can get swarmed."
 
