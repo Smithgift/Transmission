@@ -39,13 +39,13 @@ Yet, he was now skilled with working with them, and even if he didn't have quite
 
 "If we head to the Labyrinth near the Solar---" Fred started.
 
-"Oh, _no,"_ Violet said. "Don't even think about them."
+"Oh, *no,"* Violet said. "Don't even think about them."
 
 "I thought that's closer to us," James said.
 
 "No, it's too close," Lucky said.
 
-"The Solar Festival Hold is... a cult would be putting it mildly," Ralph said. "The only reason they haven't started a war with nearby Holds is that they'd probably lose, since they've already offended everyone else. Lucky's had a bad experience with them in the past, too."
+"The Solar Festival Hold is... 'a cult' would be putting it mildly," Ralph said. "The only reason they haven't started a war with nearby Holds is that they'd probably lose, since they've already offended everyone else. Lucky's had a bad experience with them in the past, too."
 
 "The gates are still too close," Lucky said. "We'd arrive on an unlucky day."
 
@@ -85,7 +85,7 @@ Scouts approached, in the colorful yellow bandannas of the Lion Trogdolyte Tribe
 
 "We're here to assault the Labyrinth," Ralph said. "Don't worry, we're waiting until tomorrow."
 
-"Oh! Funny you should mention that," the scout said. "We'll attack tomorrow. We can join forces."
+"Oh! Funny you should mention that," the scout said. "We'll attack tomorrow, too. We can join forces."
 
 Ralph looked to Lucky, who shook her head voiceriferously. Fred opened his mouth to speak, but Lucky shot him a death glare, and he didn't. "We'll talk about it," Ralph said, and motioned a thumbs-up towards Lucky.
 
@@ -117,17 +117,17 @@ The scout shrugged, and headed back.
 
 "Fine. But at the very least we should join their attack," Fred said.
 
-"Haven't you heard _anything_ of what we've talked about?" Violet said. "The fight is scaled."
+"Haven't you heard _anything_ of what we've talked about?" Violet said. "The fight is scaled to the number of attackers."
 
 "Fine, fine," Fred said. "I give in. Tomorrow."
 
-"Let's be really cautious, though," Ralph said. "I'm worried the Trog Tribe might attack. Lucky... would you mind not wandering off tonight?"
+"Let's be really cautious, though," Ralph said. "I have to admit I don't trust the Lions. Lucky... would you mind not wandering off tonight?"
 
 "Happy to," Lucky said. "I'll be on watch."
 
 * * *
 
-That night, James was on watch, as was Lucky. He noticed her trembling. He sat a little close to her, but enough to give her plenty of personal space. "Everything OK?" he whispered
+That night, James was on watch, as was Lucky. He noticed her trembling. He sat a little close to her, but enough to give her plenty of personal space. "Everything OK?" he whispered.
 
 Lucky turned to him, watching him with that strange fear and distance she always showed the rest of the party. "So many things could go wrong tomorrow," she admitted.
 
@@ -139,4 +139,4 @@ James didn't know if there was anything he could say to reassure her. "Do you wa
 
 She shook her head. "I'm fine."
 
-But that night, James could hear her soft crying.
+But later that night, James could hear her soft crying.

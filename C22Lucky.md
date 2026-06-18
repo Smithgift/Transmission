@@ -70,7 +70,7 @@ James felt uncomfortable, but said nothing. A Trog Tribe didn't waste anything..
 
 * * *
 
-In the middle of the second day away from Blue Sunrise, they found the marks marking the limits of territory, and headed down the tunnels. The Hold didn't let other groups consume 'their' resources, even if they did not get much benefit from them.
+In the middle of the second day away from Blue Sunrise, they found the marks marking the limits of its territory, and headed down the tunnels. The Hold didn't let other groups consume 'their' resources, even if they did not get much benefit from them.
 
 "How far down have you been?" Ralph asked.
 
@@ -86,7 +86,7 @@ In the middle of the second day away from Blue Sunrise, they found the marks mar
 
 Down on the lowest levels, the tunnels were thin enough that the party had to go single-file, though there was a strange amount of headroom. James was understandably in the middle as the weakest member, and he didn't argue---he felt nervous.
 
-They stepped into a larger cave. "Bats!" Violet called, and James wielded his spear. Lucky threw darts and got several, and Ralph swung his bola and got another. James managed to spear one, and saw it had a singificantly incorrect number of wings. He shuddered.
+They stepped into a larger cave. "Bats!" Violet called, and James wielded his spear. Lucky threw darts and got several, and Ralph swung his bola and got another. James managed to spear one, and saw it had a singificantly incorrect number of wings, before disappearing into a pile of said wings. He shuddered.
 
 "Let's keep going," Ralph said. "If you stick around in one place too long, you can get swarmed."
 
@@ -130,7 +130,7 @@ Lucky inspected a jar, thought about it, then inspected a different jar, rapping
 
 "And don't tell others," Fred said. "We're worried people might try to kidnap her if they knew."
 
-Lucky nodded, gently. The third jar was more normal stuff, along with a white bowl, but the fourth contained a bunch of salves and the fifth more glowing stones.
+Lucky nodded, gently. The third jar was more normal stuff, along with a white bowl, but the fourth contained a bunch of salves.
 
 "I guess I'm now a believer," James said, watching in awe.
 
