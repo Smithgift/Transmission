@@ -1,4 +1,4 @@
-## Lucky
+## Leaving the Hold
 
 Somewhere towards the end of the meal, James asked "Do you have any spare gear?"
 
@@ -8,9 +8,11 @@ James felt relief, then wondered why they had so nonchalantly offered to pay for
 
 * * *
 
-He didn't have to wonder for long. The wooden door to the unmarked structure opened with a wiry, suspicious man glaring outside... then immediately turning to a massive smile. "Lucky! I didn't know you were in the Hold. Please, come in. I see you have a new friend!"
+He didn't have to wonder for long. They headed to one of the structures outside the inner circle. James could feel the looks of the guards, but they softed on seeing Lucky.
 
-"Dave bought it," Violet said, shaking his head.
+The wooden door to the unmarked structure opened with a wiry, suspicious man glaring outside... then immediately turning to a massive smile. "Lucky! I didn't know you were in the Hold. Please, come in. I see you have a new friend!"
+
+"Dave bought it," Ralph said, shaking his head.
 
 "I'm very sorry," the apparent shopkeeper said with sorrow. Inside the dark shop were enchanted weapons in racks along the walls, and armor on stands. "What can I get for you?"
 
@@ -22,7 +24,9 @@ Lucky opened her inventory, and James's jaw hit the floor as she passed out pile
 
 "*More* than enough!" the shopkeeper's smile gleamed like his wares. "Let's see what we can do you for you, James."
 
-Over the next few minutes, James passed through a worrying array of gear, some of which would have been well beyond the Salamander level. Much of it was vetoed by either Violet or Lucky, the former having eyes for quality, and the latter giving cryptic comments that the rest of the party took as unquestionable dogma. By the end of it, James had a full inventory of high-end highly enchanted gear, and a pile of scrolls and salves to boot.
+Over the next few minutes, James passed through a worrying array of gear, some of which would have been well beyond the Salamander level. Much of it was vetoed by either Violet or Lucky, the former having eyes for quality, and the latter giving cryptic comments that the rest of the party took as unquestionable dogma.
+
+His new weapon was a spear glowing with ethereal fire, as well as a short sword made of solid blackmetal, and a bola which he knew he would have to train in. His armor, though not quite perfectly fitting, was also blackmetal. All of this was enchanted, and between Lucky and the shopkeeper they loaded up his inventory with salves and scrolls.
 
 As the shopkeeper waved them a happy farewell, with accompanying plea for them to return soon, James didn't even know whether he was dreaming. This certainly felt surreal enough to be one. "I didn't know a shop like that existed," James said at least.
 
@@ -30,7 +34,7 @@ They stopped and looked at him. "He doesn't know," Fred said at last.
 
 "Uh..." James trailed off.
 
-"That was the Hold's armory," Lucky said in a quiet voice.
+"That was the Hold's armory surplus," Lucky said in a quiet voice.
 
 "Yeah, we're welcome wherever we go," Violet said.
 
@@ -64,62 +68,3 @@ Tim frowned, but didn't say a word.
 
 James didn't add that there was a possibility the Hold wouldn't let him back in.
 
-* * *
-
-Outside the gates, the usual tunnels and glowing moss of the Hold gave James a mixture of fear, deja vu, and oddly enough, comfort. But the party didn't waste time. As soon as they put on their armor, they headed straight down the tunnels.
-
-
-
-
-
-
-Lucky and Ralph looked intently at the door. "Looks like a party slow if you throw something," Lucky said.
-
-"I think so, too."
-
-"You can read that?" James blurted.
-
-"After you've opened enough doors, you start seeing the patterns on the weird symbols."
-
-"Yeah," Lucky said. "Throw means release anything from your hand. So don't drop your weapon."
-
-"Understood," James said.
-
-Lucky pushed the door, and they charged in.
-
-
-
-
-James reached for a jar, but Ralph grabbed his arm. "Only Lucky opens jars."
-
-"Really?" James asked. The reason Trogs rotated jar opening was because equipment found in a jar would always be the size of the person who opened it. It also gave a small amount of Trickery exercise, so it was worth spreading it around.
-
-"Yes, really," Violet said.
-
-Lucky inspected a jar, thought about it, then inspected a different jar, rapping on it a few times. Then she opened it, to get a sword that blazed with green fire, a tower shield, three scrolls, and a glowing stone.
-
-"What the _nurck?"_ James asked, as Lucky looted another jar, with similarly insane loot.
-
-"I don't know how she does it, but Lucky is _the_ luckiest Transmitted in all the Underneath," Ralph said.
-
-The third jar was more normal stuff, along with a white bowl, but the fourth contained a bunch of salves and the fifth more glowing stones.
-
-"I guess I'm now a believer," James said, watching in awe.
-
-Lucky looked back at him with an strong yet undecipherable look. "Did you ever want an Unwanted?"
-
-James shook his head. "I mean, it's not like I hated them, but... sorry for whatever you've gone through."
-
-"I get it," Lucky said. "Let's keep moving."
-
-* * *
-
-That night, James and Ralph kept watch. Lucky got up, stretched and wandered off. "Where are you---" James hissed, but Ralph put a hand on his shoulder.
-
-"Lucky likes to be alone sometimes," Ralph said. "We leave her be. Just between us, something must have... you know, she doesn't like being touched, and she doesn't like being too close to people."
-
-James didn't answer. He knew all too well what might have happened to an Unwanted back on Earth. It was a shame, how they became that way: just something went wrong and they didn't have a hair color listed on the Scale.
-
-But what difference did that make? They hadn't done anything at birth to deserve anything more or less.
-
-And yet, James realized, he hadn't really seen Lucky as an equal. Even though down here, and at least outside of the Holds, the Scale no longer existed. But maybe, just maybe, it was still cruelly carved into his heart.
