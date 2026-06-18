@@ -1,10 +1,12 @@
 ## Salamanders
 
-James now understood why the rest of the party was so protective of Lucky. While it wasn't literally every jar, somehow Lucky always got great loot. And she indeed shied away from touch. When they visited Holds, they always made sure to keep Lucky away from danger, even if it meant squeezing five people in a room meant for two.
+James now understood why the rest of the party was so protective of Lucky. While it wasn't literally every jar, somehow Lucky almost always got great loot. For some reason she kept getting 'those nurcking useless white bowls' as Ralph called them, but even despite that, she found the most crazy things.
+
+And she indeed shied away from touch. When they visited Holds, they always made sure to keep Lucky away from danger, even if it meant squeezing five people in a room meant for two.
 
 But Ralph was right. Their party really was welcome wherever they went, since they had so much loot they could more or less dump it on a Hold to get whatever they needed. More than once James saw a Hold subtly suggest they stick around.
 
-For Lucky's part, she seemed to trust them a little, and as far as James could tell she was with them entirely willlingly. But she still never got too physically close to anyone, and would sometimes head off by herself.
+For Lucky's part, she seemed to trust the rest of the party a little, and as far as James could tell she was with them entirely willlingly. But she still never got too physically close to anyone, and would sometimes head off by herself.
 
 * * *
 
@@ -47,7 +49,7 @@ Yet, he was now skilled with working with them, and even if he didn't have quite
 
 "The gates are still too close," Lucky said. "We'd arrive on an unlucky day."
 
-"That settles it then," Ralph said. No one ever argued with Lucky's strange opinions on luck. "What else?"
+"That settles it then," Ralph said. No one but Fred ever argued with Lucky's strange opinions on luck. "What else?"
 
 "If we circle back to near Blue Sunrise, we can hit the one nearby," Lucky said. "We need to wait a day, but then it'll be a perfect day."
 
@@ -79,7 +81,7 @@ James couldn't feel a mixture of building worry and excitement as they approache
 
 They arrived at the Labyrinth gates to find a massive Trog Tribe already camped outside. "Let's keep our distance," Ralph said.
 
-Scouts approached, in the colorful bandannas of the Lion Trogdolyte Tribe. "Hey, what are you doing here?" one asked.
+Scouts approached, in the colorful yellow bandannas of the Lion Trogdolyte Tribe. "Hey, what are you doing here?" one asked.
 
 "We're here to assault the Labyrinth," Ralph said. "Don't worry, we're waiting until tomorrow."
 
@@ -125,9 +127,9 @@ The scout shrugged, and headed back.
 
 * * *
 
-That night, James was on watch, as was Lucky. He noticed her trembling. He sat a little close to her, but enough to give her plenty of personal space. "Everything OK?"
+That night, James was on watch, as was Lucky. He noticed her trembling. He sat a little close to her, but enough to give her plenty of personal space. "Everything OK?" he whispered
 
-"So many things could go wrong tomorrow," she admitted.
+Lucky turned to him, watching him with that strange fear and distance she always showed the rest of the party. "So many things could go wrong tomorrow," she admitted.
 
 "Wasn't tomorrow supposed to be really lucky?" James said in what he hoped was a teasing voice.
 

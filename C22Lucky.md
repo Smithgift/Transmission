@@ -10,7 +10,7 @@ Outside the gates, the usual tunnels and glowing moss of the Hold gave James a m
 
 "Well, I'm down here because a Perfect wanted my girlfriend..." James started.
 
-"A Perfect would violate the Scale?" Violet asked.
+"A Perfect would violate the Scale that badly?" Violet asked.
 
 "We weren't even supposed to be together," James admitted. "She was a Thinker. But... we agreed to meet together in the second world."
 
@@ -70,7 +70,7 @@ James felt uncomfortable, but said nothing. A Trog Tribe didn't waste anything..
 
 * * *
 
-In the middle of the second day away from Blue Sunrise, they found the marks marking the limits of territory, and headed down the tunnels. The Hold didn't let other groups consume 'their' resources, even if there was not a whole of of them.
+In the middle of the second day away from Blue Sunrise, they found the marks marking the limits of territory, and headed down the tunnels. The Hold didn't let other groups consume 'their' resources, even if they did not get much benefit from them.
 
 "How far down have you been?" Ralph asked.
 
@@ -116,7 +116,7 @@ Lucky pushed the door, and they charged in. A red troll roared in rage, but Ralp
 
 "Sorry." James said.
 
-He reached for one jar, but Ralph grabbed his arm. "Only Lucky opens jars."
+James reached for one jar, but Ralph grabbed his arm. "Only Lucky opens jars."
 
 "Really?" James asked. The reason Trogs rotated jar opening was because equipment found in a jar would always be the size of the person who opened it. It also gave a small amount of Trickery exercise, so it was worth spreading it around.
 
@@ -142,7 +142,7 @@ James shook his head. "I mean, it's not like I hated them, but... sorry for what
 
 * * *
 
-That night, James and Ralph kept watch. Lucky got up, stretched and wandered off. "Where are you---" James hissed, but Ralph put a hand on his shoulder.
+That night in a higher cavern, James and Ralph kept watch. Lucky got up, stretched and wandered off. "Where are you---" James hissed, but Ralph put a hand on his shoulder.
 
 "Lucky likes to be alone sometimes," Ralph said. "We leave her be. Just between us, something must have... you know, she doesn't like being touched, and she doesn't like being too close to people."
 

@@ -67,4 +67,3 @@ Tim frowned, but didn't say a word.
 "We might be back," Violet offer. "We tend to travel in circles."
 
 James didn't add that there was a possibility the Hold wouldn't let him back in.
-

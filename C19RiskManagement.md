@@ -108,4 +108,4 @@ James didn't answer.
 
 "Yes, ma'am. I'll think about it."
 
-"Think fast. You need to answer within the next month. Dismissed."
+"Think fast. You need to answer within the next week. Dismissed."
