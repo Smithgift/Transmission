@@ -8,7 +8,11 @@ People you should know:
 
 James Algol: Our hero, an ordinary Worker Transmitted to another world.\
 Stella Cobol: James's forbidden Thinker girlfriend who, last he heard, was also going to be transmitted.\
-Tim Ruby: A happy Holdsman in the Blue Sunrise Hold.
+Tim Ruby: A happy Holdsman in the Blue Sunrise Hold.\
+Ralph ML: A big Worker man who leads the party of Wayfarers that James just joined.\
+Violet Haskel: A thoughtful Thinker woman in Ralph's party.\
+Fred Python: A tall Worker with Ralph's party.\
+Lucky: A worn Unwanted girl with strong and unusual opinions about the worlds.
 
 The story so far:
 
@@ -50,6 +54,12 @@ Chapter 14: The Tribe assaults the Labyrinth and gets deep inside. However, ther
 
 Chapter 15: Only James and Wanda, another Trog, escape. They loot the camp for whatever they can find and, for lack of anything else, head back to the Blue Sunrise Hold. But on the way, a group of trolls attacks and kills Wanda, leaving James alone.
 
-Chapter 16: James is picked up by a patrol of the Blue Sunrise Hold. The Hold agrees to let him stay as long as he behaves, including selling his items to him. He decides to keep some **MINOR RETCON ALERT** in his inventory or under his bed as needed.
+Chapter 16: James is picked up by a patrol of the Blue Sunrise Hold. The Hold agrees to let him stay as long as he behaves, including selling his items to him. He decides to keep some in his inventory or under his bed as needed.
 
 Chapter 17: James takes to life in the Hold as a new Level 0 Citizen. While the Hold is not an unpleasant place to live, he notices that the same patterns of the Scale are repeated here, including tiers of citizenry and taxation. When a Trog Tribe passes by, he realizes Trogs may not be the answer either, since this Tribes does not want to worldclimb, either. 
+
+Chapter 18: James attends an auction to find the rich Level 2 Citizens spending immense sums on resources the Hold gains, either to grow rare plants, craft powerful items, or, in the case of one woman, simply add to her collection of ultra-rare equipment. James feels distress at this and doesn't know what to do, but finds his equipment gone.
+
+Chapter 19: James ends up raging at the Hold over the theft and stirs up enough trouble until he gets thrown in the jail. The Healer in charge of the Hold demands he either decide to become an ordinary, obedient citizen, or leave the Hold... within a week!
+
+Chapter 20: Unable to find a Trog Tribe, James tries his luck with the Wayfarers. Almost all of the parties reject him, but one takes to his mixture of honesty and forthrightness. They explain that Lucky, one of their members, is convinced that Labyrinth fights are scaled to the number of people entering, and thus the Dragon Trog Tribe was doomed from the start. Lucky agrees to let James join after looking at his mysterious tree screen, and James now has a new party!
