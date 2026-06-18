@@ -2,7 +2,7 @@
 
 They all stared at her.
 
-"Yes," Lucky said, meeting their eyes. Her voice had gained authority, as if a housecat had just revealed itself to be a lion. "I'm a Perfect. Down here like everyone else. And because I'm a Perfect, it means I know a lot more about these worlds than you all do. So how about you listen to me?"
+"Yes," Lucky said, meeting their eyes. Her voice had gained authority, as if a housecat turned out to be an undercover lion. "I'm a Perfect. Down here like everyone else. And because I'm a Perfect, it means I know a lot more about these worlds than you all do. So how about you listen to me?"
 
 No one moved.
 

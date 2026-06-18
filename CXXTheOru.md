@@ -12,8 +12,7 @@ They only stopped when Lucky found one of her special trees. The strange stars s
 
 "No, I said _both of you_ are in grave danger, and if you will let me start my story I can get to it."
 
-
-"I'm sorry," Stella said. "I know James trust you, but I don't really know who you are."
+"I'm sorry," Stella said. "I know James trusts you, but I don't really know who you are."
 
 Lucky pulled off her bonnet. "Call me Lucky. But my real name is Athena Perl."
 
@@ -49,7 +48,7 @@ The campfire watched Lucky without a word.
 
 "Is it virtual?" James asked.
 
-"As far as we could tell, no. We only picked up the Tower of Worlds' carrier wave when we found debris from one of the Oru satellites near their homeworld."
+"As far as we could tell, no. But we're not sure where exactly it is. We only picked up the Tower of Worlds' carrier wave when we found debris from one of the Oru satellites near their homeworld."
 
 "You're telling me the Perfects have interstellar travel?" Ralph said, shaking his head. "Unbelievable. But we're here."
 
@@ -75,7 +74,7 @@ Everyone raised hands, and then the tension that had started to brew started dis
 
 "Perfect example. Imagine the only thing that survived of humanity was a functioning client for _Ragnarok Clash,_ connecting to a server no one knows where. No documents but the manual. No way to understand what the symbols meant in it, except by trial and error in-game. No pictures but the in-game graphics. No music but its sound track. And what would the alien archaelogist think? That we were fervent believers in the Norse gods?"
 
-"So what you're saying is all we know is this VRMMORPG," Ralph said, shaking his head. "That's all we have left."
+"So what you're saying is all we know is this VRMMORPG," Ralph said, shaking his head. "That's all that's left of the Oru."
 
 "That's Theory A," Lucky said. "But let's examine our assumptions. We are assuming that this is a game. Why would it be? It's very painful to play, literally, and it's extremely hard. Furthermore, to play it, you have to be dissolved into something we don't understand and shoved to some system in some place we have no idea where, and then you can't go back except by winning. Even if we knew what that process was, wouldn't you be skeptical that you might not exist afterwards?"
 

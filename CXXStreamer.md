@@ -80,7 +80,7 @@ The tension dissipated as they all nodded their heads.
 
 "I have so many questions about... things I've come across," Stella said.
 
-"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. On that subject," she pulled a scroll out of her inventory and threw it on the fire. It blazed blue briefly. "_Ari Olu Karu Karu Pari._" she chanted.
+"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. On that subject," she pulled a scroll out of her inventory and threw it on the fire. It blazed blue briefly. "_Oru Aru Ali Paru Paru Pari._" she chanted.
 
 Suddenly the night seemed less hostile.
 

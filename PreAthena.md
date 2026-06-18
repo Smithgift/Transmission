@@ -32,7 +32,7 @@ James felt uncomfortable. Everything had been going great, aside from Fred's dea
 
 * * *
 
-Lucky continued to act odd. She refused to talk to anyone, even Violet, and marched at some distance from the rest of them. James thought about apologizing, but in truth, he didn't even know how he had hurt Lucky.
+Lucky continued to act odd. She refused to talk to anyone, even Violet, and marched at some distance behind the rest of them. James thought about apologizing, but in truth, he didn't even know how he had hurt Lucky.
 
 He probably should still apologize. He fell back a little. "Hey."
 

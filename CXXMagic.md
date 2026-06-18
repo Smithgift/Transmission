@@ -52,7 +52,7 @@ They all switched to see them.
 
 "---You can see which stars are shining, and thus what magic will work on that day. Or not work."
 
-"That day you made us all wait before challenging the Guardian," Violet thought out loud. "You were making sure we were on the right day?"
+"That day you made us all wait before we assaulted the Labyrinth," Violet thought out loud. "You were making sure we were on the right day?"
 
 "Correct," Lucky said. "If we were on the wrong one I couldn't have spammed fire spears like I did at the end."
 
