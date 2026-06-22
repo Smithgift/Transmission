@@ -51,7 +51,7 @@ Yet, he was now skilled with working with them, and even if he didn't have quite
 
 "That settles it then," Ralph said. No one but Fred ever argued with Lucky's strange opinions on luck. "What else?"
 
-"If we circle back to near Blue Sunrise, we can hit the one nearby," Lucky said. "We need to wait a day, but then it'll be a perfect day."
+"If we circle back to near Blue Sunrise, we can hit the one nearby," Lucky said. "We need to wait two days, but then it'll be a perfect day."
 
 "That's..." James started.
 
@@ -69,23 +69,25 @@ Lucky shook her head. "Not any time soon." She turned to James. "It's going to b
 
 "Lucky and I have talked about it," Violet said. "The problem is, no one wants to be left behind, but a worldclimbing Tribe has to worldclimb, right? So it's a situation where they're always going to be throwing more people at the Labyrinth, even if it hurts. And they don't necessarily believe it will."
 
-"Anyway," Ralph said. "So we hit the Labyrinth near Blue Sunrise on the day Lucky really likes. We already have a key. All in favor?"
+"Anyway," Ralph said. "So we hit the Labyrinth near Blue Sunrise on the day Lucky really likes. She already found the key fragment to it last time we were nearby. All in favor?"
 
 All but James raised their hands, and James raised his after a moment.
 
-"Then it's decided."
+"Then it's decided. Fred, start crafting that key."
 
 * * *
 
 James couldn't feel a mixture of building worry and excitement as they approached the same gate. At least they wouldn't be stopping by Blue Sunrise, since James didn't know, Lucky or not, _he'd_ be welcome.
 
-They arrived at the Labyrinth gates to find a massive Trog Tribe already camped outside. "Let's keep our distance," Ralph said.
+They arrived at the Labyrinth gates to find a massive Trog Tribe already camped outside, with yellow banners showing a lion rampant. Judging by the sheer size of the camp, James judged it was between three to four times the size of the Dragons, perhaps at the upper limit to how large a Tribe could grow before it simply couldn't find enough resources to sustain itself.
+
+"Let's keep our distance," Ralph said.
 
 Scouts approached, in the colorful yellow bandannas of the Lion Trogdolyte Tribe. "Hey, what are you doing here?" one asked.
 
-"We're here to assault the Labyrinth," Ralph said. "Don't worry, we're waiting until tomorrow."
+"We're here to assault the Labyrinth," Ralph said.
 
-"Oh! Funny you should mention that," the scout said. "We'll attack tomorrow, too. We can join forces."
+"Really?" The scout looked them up and down, and lingered on the quality of their weapons. "You'd be welcome as one of our stage two Salamanders."
 
 Ralph looked to Lucky, who shook her head vociferously. Fred opened his mouth to speak, but Lucky shot him a death glare, and he didn't. "We'll talk about it," Ralph said, and motioned a thumbs-up towards Lucky.
 
@@ -93,19 +95,19 @@ Ralph looked to Lucky, who shook her head vociferously. Fred opened his mouth to
 
 Ralph looked at Lucky, who shook her head again. "That's OK," Ralph said.
 
-The scout shrugged, and headed back.
-
-"Let's keep a safe distance," Ralph said.
+The scout shrugged. "Just let us know before tomorrow, because we're attacking as soon as we've had breakfast." They headed off. 
 
 * * *
 
-"Now what?" James asked at the camp that night.
+They started a fire in a nearby cavern, far enough that they couldn't be accused of plotting to sabotage the Lions. Even if they wouldn't survive---one party of very well equipped Wayfarers still couldn't take on a Trog Tribe---they might still nurck up the Lions' plans. Fred had told James stories of Transmitted who had dedicated entire lives to trying to get back at some earlier slight. When everyone was theoretically immortal, grudges that piled up never got buried.
+
+"Now what?" James asked.
 
 "Lucky, you said the next lucky day was going to be a while, right?" Ralph said.
 
-"A while, yeah," Lucky said. "Tomorrow is our best bet, but not with them."
+"A while, yeah," Lucky said. "Two days from now is our best bet, but not with them."
 
-"I just don't get it," Fred said. "What's special about tomorrow?"
+"I just don't get it," Fred said. "What's special about waiting two days?"
 
 "It's a very lucky day," Lucky said matter-of-factly.
 
@@ -113,11 +115,75 @@ The scout shrugged, and headed back.
 
 "It just is," Lucky insisted.
 
-"We all agreed not to question Lucky's hunches," Ralph said.
-
-"Fine. But at the very least we should join their attack," Fred said.
+"Listen," Fred said, raising his voice. "The Lions are willing to let us help. And we _can_ help them. We're much better off joining their assault than going it by ourselves."
 
 "Haven't you heard _anything_ of what we've talked about?" Violet said. "The fight is scaled to the number of attackers."
+
+"Yes, but all we have is Lucky's hunch on that," Fred said.
+
+"We all agreed not to question Lucky's hunches," Ralph said.
+
+"Yes, Lucky is insanely lucky. But this could be a life-or-death decision," Fred said patiently. "Because if we attack and lose, it doesn't matter how lucky Lucky was. We're still dead."
+
+"Lucky, _why_ is two days from now more lucky than tomorrow?" James asked.
+
+"It'll be' a special day," Lucky said. "It will make a big difference."
+
+"How?"
+
+"We'll have better luck on it."
+
+Fred shook his head. "OK, say we wait, but then the Lions actually make it tomorrow. Now what?"
+
+"Can't we try the day after that, anyway?" James asked.
+
+"No, because the gates will disappear permanently. And before you ask 'why not just craft a key for a different Labyrinth?' I already finished crafting the key for this one. We're out of white shinejewels, and the only other key fragment we have is for the Labyrinth near the Solar Festival. So unless Lucky is planning to luck us up the materials for another gate, we're just nurcked if the Lions win."
+
+"They won't," Lucky said. "Their Tribe is just too large."
+
+"If we guess wrong---" Fred said, voice raising another notch
+
+"Fred! *Fred!"* Violet interrupted. "Worst case scenario, it's just a matter of time before we have another opportunity."
+
+"Lucky, _can_ you luck us up more materials?" James asked.
+
+Lucky shrugged. "I can't guarantee any given drop. Fortune is finicky like that."
+
+"But you know that two days from now is lucky."
+
+"Of course," Lucky said. "It's very lucky."
+
+"It's still only a matter of time," Violet insisted. "Because Lucky still finds things eventually."
+
+"Sure, and eventually one of us is going to buy it like Dave did," Fred said. "Could even be Lucky."
+
+Ralph shook his head. "We need to put it to a vote. Everyone in favor of waiting the two days, raise your left hand. Everyone in favor of joining the Trogs, raise your right hand."
+
+Lucky and Violet raised their left hand. Only Fred raised his right hand. James and Ralph didn't raise either.
+
+"Is this a tie or what?" Fred asked.
+
+"James, you need to pick a side," Violet said. "Pick ours. You know how Lucky is always right."
+
+"Not always," Fred said.
+
+"You know how Lucky is _frequently_ right."
+
+"I'm thinking," James said.
+
+The crackle of burning cavewood filled the empty space.
+
+After a moment, Ralph shook his head, then raised his left hand. "I've been traveling with Lucky in one party or another for close to a year now, and she just _knows._"
+
+"It's decided, then," Violet said.
+
+"C'mon, James, you should at least agree with me," Fred pleaded.
+
+James thought about it a little more. "Not that it matters," he said. "But I think Lucky is at least right about scaling the fight. It's the sort of dung the Perfects would pull."
+
+Everyone nodded, including Fred.
+
+"Then we wait," Ralph said.
 
 "Fine, fine," Fred said. "I give in. Tomorrow."
 
