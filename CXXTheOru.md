@@ -2,6 +2,8 @@
 
 They only stopped when Lucky found one of her special trees. The strange stars shone over their campfire, and James found himself truly uncomfortable.
 
+The moment the fire was burning, Lucky took out a scroll and threw it inside. The flames blazed blue for a moment. "_Oru Aru Ali Paru Paru Pari._" she chanted.
+
 "You better have an _extremely_ good reason for this, Lucky," Ralph said.
 
 "I do," Lucky said, unmoved. "But it's going to take some explanation."
@@ -90,4 +92,4 @@ Everyone raised hands, and then the tension that had started to brew started dis
 
 "We also assume this because there seems no reason to spend the immense amount of resources constructing this system, which is by some Theory B proponents to be a genuine bubble in hyperspace where physics follows alternate rules, unless doing so was absolutely critical to their culture.
 
-"And a particular facet of that culture," Lucky finished. "Is why from the moment you two met, you have been in grave danger, and will be until you reach the fourth world."
+"And a particular facet of that culture," Lucky finished. "Is why you have been in grave danger from the moment you met here, and will remain in danger until you reach the fourth world."

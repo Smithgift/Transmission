@@ -5,7 +5,7 @@ Lucky poked the embers back into life with another log. "This is a good day to s
 
 They all gathered around.
 
-Lucky took out a white bowl, dropped a scroll into it, and then put it into the fire. The scroll blazed blue, but after a few seconds, it turned into ash. She dipped her finger in the ash and drew a circle on the back of her left hand, and the ashes flashed and disappeared. The rest of the ashes in the bowl also disappeared. "That's it. But you need to do it when you already have access to that color of magic."
+Lucky took out one of those 'nurcking white bowls', dropped a scroll into it, and then put it into the fire. The scroll blazed blue, but after a few seconds, it turned into ash. She dipped her finger in the ash, then drew a circle on the back of her left hand. The ashes flashed and disappeared. The rest of the ashes in the bowl also disappeared. "That's it. But you need to do it when you already have access to that color of magic."
 
 "How the nurck was anyone ever supposed to figure _that_ out?" Ralph about yelled.
 

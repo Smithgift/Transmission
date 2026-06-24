@@ -16,9 +16,9 @@ The gates to the Labyrinth stood motionless, as if unbothered by gawking humans.
 
 They approached the gates. James wondered if the runes on this gate had been designed to tell what lay within, just through some inscrutable means like the doors of rooms.
 
-"Listen up," Ralph said, his words more solemn and commanding. "When you are in a Labyrinth, you always take the leftmost path. I'll be in front marking the walls. If it's an X, we've already been down that path, so take the next leftmost path. If I don't make it, then Violet will mark them, then Lucky, James, and Fred. That's the order we'll be traveling in. We'll eventually reach the entrance to the central chamber as long as we follow those rules.
+"Listen up," Ralph said, his words more solemn and commanding. "When you're scouting a Labyrinth, you always take the leftmost path. I'll be in front marking the walls. If it's an X, we've already been down that path, so take the next leftmost path. If I don't make it, then Violet will mark them, then Lucky, James, and Fred. That's the order we'll be traveling in. We'll eventually reach the entrance to the central chamber as long as we follow those rules.
 
-"No matter what happens, we're not retreating. We either die together or world. Everyone ready?"
+"No matter what happens, we're not retreating. We either die together or worldclimb. Everyone ready?"
 
 "Ready," Violet said.
 
@@ -28,7 +28,7 @@ They approached the gates. James wondered if the runes on this gate had been des
 
 "Ready," Lucky said quietly.
 
-Ralph took out the glowing or key and stuck it into the gates. They ground open, and in they charged.
+Ralph took out the glowing orange key and stuck it into the gates. They ground open, and in the party charged.
 
 James could somehow immediately tell Lucky was right. They encountered monsters, but they were fewer and of weaker variants, not the swarms the Dragons and presumably the Lions had encountered. He still took the occasional scratch even with his heavy armor, though it didn't really matter, since they were going through the Labyrinth so quickly.
 
@@ -55,6 +55,3 @@ James grabbed the pill and stuffed it down his throat. He also grabbed a scroll,
 Lucky shouted a strangely musical battle cry and James watched as fire spear after fire spear after fire spear slammed into the Guardian. The remaining sub-Guardian tried to reach it, but Ralph cut it down with his axe.
 
 James got out another scroll, ripped it, and pointed at the Guardian. A fire spear struck it, almost unnoticable with the steady fire spears from Lucky. Then suddenly the Guardian exploded into light.
-
-
-He had a moment to think, and headed towards Lucky, who was showering sheer destruction with scroll after scroll.

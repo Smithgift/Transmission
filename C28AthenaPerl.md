@@ -66,7 +66,7 @@ Ralph shook his head again. "Dung, man. Never thought I'd sympathize with a Perf
 
 "What do you want here?" Violet asked Lucky.
 
-"I said it before: to get out. I haven't lied to any of you about that."
+"I said it before: to get out of this place. I haven't lied to any of you about that."
 
 "Why not try to get everyone out?" Violet persisted. "You clearly know real facts about the system."
 
@@ -108,11 +108,11 @@ They all looked at Lucky's white tree, which was enormous. "It gives you luck," 
 
 "You don't _know?_"
 
-"Could you explain, in perfect detail, how your comms worked? Why pressing one button did one thing and a different button did another? I sure didn't. It just worked. In the same way, we didn't know how the Tower of Worlds worked. We just sent people there, and it works."
+"Could you explain, in perfect detail, how your comms worked? Why pressing one button did one thing and a different button did another? I sure didn't. It just worked. In the same way, we didn't know how the Tower of Worlds worked. We just sent people there."
 
 "'The Tower of Worlds,'" Ralph said out loud. "Sounds a lot better than 'the Destination.'"
 
-"I... I have a question," James said. "Did anyone ever come back? Like," he found his voice raising. "If you know how to Transmit, do you know how to Reply?"
+"I... I have a question," James said. "Did anyone ever come back? Like," he found his voice wavering. "If you know how to Transmit, do you know how to Reply?"
 
 Lucky watched them all in silence. The fire crackled.
 
@@ -128,7 +128,7 @@ Lucky watched them all in silence. The fire crackled.
 
 "Same," James said.
 
-"As you wish. Before I was Transmitted, my mother paid... an obscene amount of money to a member of the Supreme Council," Lucky said. "An amount so huge it would make a material if small difference in whether we could Rebuild the surface of Earth. She wanted to know if anyone had ever come back."
+"As you wish. Before my Transmission, my mother paid... an obscene amount of money to a member of the Supreme Council," Lucky said. "An amount so huge it would make a material if small difference in whether we could Rebuild the surface of Earth. She wanted to know if anyone had ever come back."
 
 The campfire was deathly quiet.
 

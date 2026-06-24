@@ -72,7 +72,7 @@ No one shouted a warning. No one was even there to greet them. Piles of rejected
 
 The runes on the door grew dimmer and dimmer. "Not a good sign," Ralph said. He shook his head as they flickered. "They've almost certainly lost at this point."
 
-The runes turned completely dark, then back to their usual blue.
+The runes turned completely dark, then back to dull.
 
 "They didn't make it," Violet said.
 

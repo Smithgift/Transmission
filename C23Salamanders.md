@@ -77,7 +77,7 @@ All but James raised their hands, and James raised his after a moment.
 
 * * *
 
-James couldn't feel a mixture of building worry and excitement as they approached the same gate. At least they wouldn't be stopping by Blue Sunrise, since James didn't know, Lucky or not, _he'd_ be welcome.
+James couldn't feel a mixture of building worry and excitement as they approached that same gate. At least they wouldn't be stopping by Blue Sunrise, since James didn't know, Lucky or not, _he'd_ be welcome.
 
 They arrived at the Labyrinth gates to find a massive Trog Tribe already camped outside, with yellow banners showing a lion rampant. Judging by the sheer size of the camp, James judged it was between three to four times the size of the Dragons, perhaps at the upper limit to how large a Tribe could grow before it simply couldn't find enough resources to sustain itself.
 
@@ -99,13 +99,13 @@ The scout shrugged. "Just let us know before tomorrow, because we're attacking a
 
 * * *
 
-They started a fire in a nearby cavern, far enough that they couldn't be accused of plotting to sabotage the Lions. Even if they wouldn't survive---one party of very well equipped Wayfarers still couldn't take on a Trog Tribe---they might still nurck up the Lions' plans. Fred had told James stories of Transmitted who had dedicated entire lives to trying to get back at some earlier slight. When everyone was theoretically immortal, grudges that piled up never got buried.
+They started a fire in a nearby cavern, far enough that they couldn't be accused of plotting to sabotage the Lions. Even if they wouldn't survive---one party of very well equipped Wayfarers still couldn't take on a Trog Tribe---they might still be able to nurck up the Lions' plans. Fred had told James stories of Transmitted who had dedicated entire lives to trying to get back at some earlier slight. When everyone was theoretically immortal, grudges that piled up never got buried.
 
 "Now what?" James asked.
 
 "Lucky, you said the next lucky day was going to be a while, right?" Ralph said.
 
-"A while, yeah," Lucky said. "Two days from now is our best bet, but not with them."
+"A while, yeah," Lucky said. "Two days from now is our best bet."
 
 "I just don't get it," Fred said. "What's special about waiting two days?"
 
@@ -127,7 +127,7 @@ They started a fire in a nearby cavern, far enough that they couldn't be accused
 
 "Lucky, _why_ is two days from now more lucky than tomorrow?" James asked.
 
-"It'll be' a special day," Lucky said. "It will make a big difference."
+"It'll be a special day," Lucky said. "It will make a big difference."
 
 "How?"
 
@@ -141,7 +141,7 @@ Fred shook his head. "OK, say we wait, but then the Lions actually make it tomor
 
 "They won't," Lucky said. "Their Tribe is just too large."
 
-"If we guess wrong---" Fred said, voice raising another notch
+"If we guess wrong---" Fred said, voice raising another notch.
 
 "Fred! *Fred!"* Violet interrupted. "Worst case scenario, it's just a matter of time before we have another opportunity."
 
@@ -193,7 +193,7 @@ Everyone nodded, including Fred.
 
 * * *
 
-That night, James was on watch, as was Lucky. He noticed her trembling. He sat a little close to her, but enough to give her plenty of personal space. "Everything OK?" he whispered.
+That night, James was also on watch. He noticed Lucky trembling, sitting a distance away from the sleeping rest of the party. He sat a little close to her, but enough to give her plenty of personal space. "Everything OK?" he whispered.
 
 Lucky turned to him, watching him with that strange fear and distance she always showed the rest of the party. "So many things could go wrong tomorrow," she admitted.
 
@@ -205,4 +205,6 @@ James didn't know if there was anything he could say to reassure her. "Do you wa
 
 She shook her head. "I'm fine."
 
-But later that night, James could hear her soft crying.
+But later that night, James could hear her soft crying. When he listened closely, he could hear her say just one thing.
+
+_"I want to get out."_

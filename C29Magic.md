@@ -22,11 +22,11 @@ At this Violet and Ralph hurried up to the two. "You know how to work that scree
 
 "Why tomorrow?" James asked before Ralph could.
 
-"Because that's how the magic system works. Let me go into some detail, OK?" she asked. James could hear the slightest note of fear, as if dreading that now this was going to be the last straw.
+"Because that's how the magic system works. Let me go into some detail, OK?" she asked. James could hear the slightest note of fear, as if dreading that now _this_ was going to be the last straw.
 
 "Sure," Violet said. "We trust you."
 
-Lucky looked around, but didn't relax much. "To use magic, you need three things. One are the scrolls that the Transmitted so carelessly waste. They contain the chant you need to sing, but if you just tear them in two, you get just one use.
+Lucky looked around at their faces, but didn't relax much. "To use magic, you need three things. One are the scrolls that the Transmitted so carelessly waste. They contain the chant you need to sing, but if you just tear them in two, you get just one use.
 
 "The second thing is, for lack of a better term, magical capacity. That's the third stat, which is correctly understood to be magic, and even more correctly called Crane."
 
@@ -52,11 +52,11 @@ They all switched to see them.
 
 "---You can see which stars are shining, and thus what magic will work on that day. Or not work."
 
-"That day you made us all wait before we assaulted the Labyrinth," Violet thought out loud. "You were making sure we were on the right day?"
+"Those two days you made us all wait before we assaulted the Labyrinth," Violet thought out loud. "You were making sure we were on the right day?"
 
 "Correct," Lucky said. "If we were on the wrong one I couldn't have spammed fire spears like I did at the end."
 
-"And what day it is changes how enchantments work?" James asked.
+"And what day it is changes how enchantments work?" James guessed.
 
 "Yes, and there's an insane number of interconnected rules based on what item it is, what enchantments it already has, and what day it is or other sources of color you have access to. Even we Perfects haven't figured it all out."
 

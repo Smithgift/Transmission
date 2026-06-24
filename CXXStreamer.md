@@ -32,7 +32,7 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Though," Stella said. "I'm confused. If the Perfects can send monsters, wouldn't it make more sense for us to stay in a big city?"
 
-Lucky shook her head. "They can trigger a monster to be sent based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. A city like New London would have such immense total _hamartia_ that it could summon a Titan outright."
+Lucky shook her head. "They can summon a monster based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. A city like New London would have such immense total _hamartia_ that it could summon a Titan outright."
 
 "Does the cost of summoning not go up, then?" Violet asked.
 
@@ -80,11 +80,7 @@ The tension dissipated as they all nodded their heads.
 
 "I have so many questions about... things I've come across," Stella said.
 
-"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. On that subject," she pulled a scroll out of her inventory and threw it on the fire. It blazed blue briefly. "_Oru Aru Ali Paru Paru Pari._" she chanted.
-
-Suddenly the night seemed less hostile.
-
-"You would call that spell 'sanctuary'," Lucky said. "I keep a bunch of scrolls with blue magic in my inventory just in case."
+"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. The spell I cast at the beginning you'd call 'sanctuary', which makes it harder for monsters to spawn."
 
 "I'm assuming it's not foolproof," Stella said.
 
@@ -96,7 +92,7 @@ Suddenly the night seemed less hostile.
 
 "Previous _expeditions?_" James asked.
 
-"We can talk about it later. Right now, though, one of us needs to keep watch, and everyone should be sleeping in his armor tonight."
+"We can talk about it later. Right now, we should get some rest, and everyone should be sleeping in armor tonight."
 
 * * *
 
