@@ -10,7 +10,7 @@ For Lucky's part, she seemed to trust the rest of the party a little, and as far
 
 * * *
 
-One meal around a fire, James looked at his stats. Even if he was probably more elite than Drake's old party now, his Trickery was still too low to have  qualified as a Salamander among the late Tribe.
+One meal around a fire, James looked at his stats. Even if he was probably more elite than Drake's old party now, his Trickery was still too low to have qualified as a Salamander among the late Tribe.
 
 > Strength A: 16+9\
 > Strength B: 16+0\
@@ -185,7 +185,7 @@ Everyone nodded, including Fred.
 
 "Then we wait," Ralph said.
 
-"Fine, fine," Fred said. "I give in. Tomorrow."
+"Fine, fine," Fred grumbled. "I give in. We wait."
 
 "Let's be really cautious, though," Ralph said. "I have to admit I don't trust the Lions. Lucky... would you mind not wandering off tonight?"
 

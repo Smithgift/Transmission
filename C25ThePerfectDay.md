@@ -34,7 +34,7 @@ James could somehow immediately tell Lucky was right. They encountered monsters,
 
 They stumbled into the central chamber early. "Spawners first, sub-Guardians, then the Guardians," Ralph said. "Go!" He kicked down the door and then things immediately went wrong.
 
-The glimpse James saw was of a chamber with only a handful of skeletal scorpion spawners, though the gigantic black Guardian-scorpion was still defended by four---no, three---red sub-Guardian scorpions. The problem was that the monsters from the maze charged them from the rear at the same time the spawnered unflashed unlight and suddenly there were swarms after all.
+The glimpse James saw was of a chamber with only a handful of skeletal scorpion spawners, though the gigantic black Guardian-scorpion was still defended by four---no, three---red sub-Guardian scorpions. The problem was that the monsters from the maze charged them from the rear at the same time the spawners unflashed unlight and suddenly there were swarms after all.
 
 James didn't have much chance to think. He thrust his spear at a red troll only to narrowly avoid his brain caving in from its club. Fred pulled and ripped a scroll that gave them an ice wall. "Ralph!" Lucky screamed from behind, but James was too busy spiking the spiders that clambered over the wall. 
 

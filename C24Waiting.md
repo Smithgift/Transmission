@@ -26,7 +26,7 @@ Ralph looked glum. "Fight each other, unfortunately."
 
 "No, what?"
 
-"You might understand it more than most. You left Blue Sunrise because you wanted to worldclimb, right?"
+"You might understand it better than most. You left Blue Sunrise because you wanted to worldclimb, right?"
 
 "Yeah," James said, which was close enough to the truth.
 
