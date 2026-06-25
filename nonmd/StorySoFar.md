@@ -63,3 +63,9 @@ Chapter 18: James attends an auction to find the rich Level 2 Citizens spending 
 Chapter 19: James ends up raging at the Hold over the theft and stirs up enough trouble until he gets thrown in the jail. The Healer in charge of the Hold demands he either decide to become an ordinary, obedient citizen, or leave the Hold... within a week!
 
 Chapter 20: Unable to find a Trog Tribe, James tries his luck with the Wayfarers. Almost all of the parties reject him, but one takes to his mixture of honesty and forthrightness. They explain that Lucky, one of their members, is convinced that Labyrinth fights are scaled to the number of people entering, and thus the Dragon Trog Tribe was doomed from the start. Lucky agrees to let James join after looking at his mysterious tree screen, and James now has a new party!
+
+Chapter 21: James's new party heads over to the hold's armory surplus, where the quartermaster is incredibly happy to see Lucky of all people. After causally paying them an large sum of materials, the party gets James equipped with high-end gear and weaponry.
+
+Chapter 22: The party searches the lower tunnels in search of rooms. Lucky, in turns out, is insanely lucky, and any jar of treasure she opens will have insane loot in it. It also seems Lucky and Ralph can interpret the mysterious symbols on room doors. Lucky, however, tends to wander off in the middle of the 'night', and Ralph speculates something traumatic must have happened to her.
+
+Chapter 23: **YOU ARE HERE**
