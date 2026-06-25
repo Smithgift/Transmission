@@ -10,7 +10,7 @@ For Lucky's part, she seemed to trust the rest of the party a little, and as far
 
 * * *
 
-One meal around a fire, James looked at his stats, wondering how even if he was probably more elite than Drake's old party now, he still wouldn't qualify as a Salamander among the late Tribe for having too low Trickery.
+One meal around a fire, James looked at his stats. Even if he was probably more elite than Drake's old party now, his Trickery was still too low to have  qualified as a Salamander among the late Tribe.
 
 > Strength A: 16+9\
 > Strength B: 16+0\
@@ -77,7 +77,7 @@ All but James raised their hands, and James raised his after a moment.
 
 * * *
 
-James couldn't feel a mixture of building worry and excitement as they approached that same gate. At least they wouldn't be stopping by Blue Sunrise, since James didn't know, Lucky or not, _he'd_ be welcome.
+James couldn't help but feel a mixture of building worry and excitement as they approached that same gate. At least they wouldn't be stopping by Blue Sunrise, since James didn't know if, Lucky or not, _he'd_ be welcome.
 
 They arrived at the Labyrinth gates to find a massive Trog Tribe already camped outside, with yellow banners showing a lion rampant. Judging by the sheer size of the camp, James judged it was between three to four times the size of the Dragons, perhaps at the upper limit to how large a Tribe could grow before it simply couldn't find enough resources to sustain itself.
 
