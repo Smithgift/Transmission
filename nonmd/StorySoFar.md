@@ -68,4 +68,8 @@ Chapter 21: James's new party heads over to the hold's armory surplus, where the
 
 Chapter 22: The party searches the lower tunnels in search of rooms. Lucky, in turns out, is insanely lucky, and any jar of treasure she opens will have insane loot in it. It also seems Lucky and Ralph can interpret the mysterious symbols on room doors. Lucky, however, tends to wander off in the middle of the 'night', and Ralph speculates something traumatic must have happened to her.
 
-Chapter 23: **YOU ARE HERE**
+Chapter 23: The party agrees to assault a Labyrinth. On arrival, they find the Lion Trog Tribe planning to assault, themselves. As whoever wins will close the Labyrinth permanently, Fred argues they should join the Lions. Lucky argues that the day is unlucky, and waiting one more day would be better. Eventually the party sides with Lucky.
+
+Chapter 24: They wait a day. The worldclimbers of the party tell James about the War of Indenture on the Surface: a perpetual struggle between slave-holding cities and free cities, both of which need large numbers of agricultural workers to keep themselves fed. Meanwhile, the Lions try but are destroyed. James rages, then **MINOR RETCON** feels guilt for not telling them.
+
+Chapter 25: The party assaults the Labyrinth on Lucky's perfect day, and find the monsters much less numerous. On attacking the Guardian, however, monsters spill from behind while the spawners activate, and in the chaos Fred is badly injured. Lucky spams fire spears at the end and the Guardian flashes into light. 
