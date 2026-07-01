@@ -14,9 +14,9 @@ It was worth a shot.
 
 Who knew if Wayfarers needed somewhere to gather, or if taverns were built and then Wayfarers gathered there? But taverns existed, the one clearly-marked structure near the gates. James stepped in, and immediately found himself underwhelmed.
 
-Everyone who had played a fantasy game had an idea of what a tavern _should_ look like, but actually making one with the materials found in the Underneath wasn't so easily. It looked more like a particularly ugly bar than a tavern. He looked for a crude stone table to sit at.
+Everyone who had played a fantasy game had an idea of what a tavern _should_ look like, but actually making one with the materials found in the Underneath wasn't so easily. It looked more like a particularly ugly bar than a tavern. He looked for a crude stone table to sit at, then realized he should go around..
 
-He had debated whether to wear his Dragon bandana as an ordinary Transmitted or a Salamander, and decided to put them half-way. That was how he would pitch himself. Someone with skills and potential, just not quite there yet. James had also decided to start with the top and work his way down. 
+He had debated whether to wear his Dragon bandana as an ordinary Transmitted or a Salamander, and decided to put them half-way. That was how he would pitch himself. Someone with skills and potential, just not quite there yet. James had also decided to start with the top and work his way down.
 
 He found one group. "Hey, there---"
 
@@ -65,6 +65,8 @@ Only four, so they probably wanted one more. James sat beside them. "Hey, lookin
 "Lucky thinks that Guardian fights are scaled to the number of people in the Labyrinth," Violet said.
 
 "I don't just _think_ it," Lucky muttered.
+
+Of all the theories he had heard about Labyrinths, James had to admit that that was a new one.
 
 "I mean, she has a point," Ralph said. "Last time I worldclimbed, our Tribe was like fifty people. All Salamanders, though."
 

@@ -2,6 +2,8 @@
 
 The other Trogs were not particularly torn up about Amanda's 'death.' "People get popped," Drake told him as the camp fortified itself for fourth watch. "Happens all the time. If you get brokenhearted every time you'll eventually run out of heart."
 
+"It was just an Unwanted, too," another Salamander said. James felt uncomfortable.
+
 "Drake," Kate said, shaking her head, then turning to James. "It's really hard the first few times, but you get used to it. She's not dead. She's just somewhere out there."
 
 "Being murdered over and over again by monsters," James said, his voice hollowed.

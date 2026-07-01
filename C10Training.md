@@ -8,7 +8,7 @@ He had been so busy trying to survive that the next step hadn't really been in h
 
 He spotted Drake and the others forming up. James walked up to them. "Hey."
 
-"Hey," Drake said. "Listen, I don't have anything against you as a person, but you are a newt. We're heading to lower reaches of the Underneath, where the average monster could kill you in seconds. You need to head to basic training at the very least, and then find a low-level party."
+"Hey," Drake said. "Listen, I don't have anything against you as a person, but you are a newt. We're Salamanders. We're heading to lower reaches of the Underneath, where the average monster could kill you in seconds. You need to head to basic training at the very least, and then find a low-level party."
 
 James had to admit to himself that everything Drake said made sense. He was the equivalent of a level one noob, even if he had no idea if anything resembled 'levels' in the system here. "No problem," James said. He gave a wave and headed off in search of basic training.
 
@@ -20,7 +20,7 @@ In one corner of the camp a kind of training arena had been built, where one baf
 
 "Again!"
 
-"You the other newt?" a Worker girl beside James asked suddenly.
+"You the other newt?" an Unwanted girl beside James asked quitely.
 
 "Yeah," James said. "James."
 

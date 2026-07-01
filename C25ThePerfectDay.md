@@ -38,9 +38,9 @@ The glimpse James saw was of a chamber with only a handful of skeletal scorpion 
 
 James didn't have much chance to think. He thrust his spear at a red troll only to narrowly avoid his brain caving in from its club. Fred pulled and ripped a scroll that gave them an ice wall. "Ralph!" Lucky screamed from behind, but James was too busy spiking the spiders that clambered over the wall. 
 
-"Fall inside!" Ralph called, and James didn't hesitate. Fred did for one moment, and an enormous crab turned his other hand into a mess of red before he cut back with his Phoenix Sword. Then they were all inside.
+"Fall inside!" Ralph called, and James didn't hesitate. Fred did for one moment, and an enormous crab turned his other hand into a mess of red before he cut back with his Phoenix Sword. Then they were all inside the central chamber.
 
-The party had been scattered all over. Lucky was charging one spawner on the left, while Violet and Ralph trying to reach the nearest spawner on the right. Masses of scorpions lay everywhere.
+The party had been scattered all over. Lucky was charging one spawner on the left, while Violet and Ralph trying to reach the nearest spawner on the right. Masses of dead scorpions lay everywhere.
 
 "Get the spawners!" Fred called, holding his own against the monsters trying to break inside. James ran towards Lucky, but one of the giant red scorpions charged him.
 
