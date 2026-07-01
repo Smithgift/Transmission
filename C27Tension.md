@@ -2,7 +2,7 @@
 
 James marveled at how, merely one day into their travels on the Surface, they were already angry at each other.
 
-James didn't know who blamed Lucky for what had happened. Maybe everyone, including Lucky, did. Maybe no one did. But he could feel the tension that had grown overnight. James found himself snapping at the others, and Violet had a brewing temper. Ralph's normally jovial dispensation had become saturnine.
+He didn't know who blamed Lucky for what had happened. Maybe everyone, including Lucky, did. Maybe no one did. But he could feel the tension that had grown overnight. James found himself snapping at the others, and Violet had a brewing temper. Ralph's normally jovial dispensation had become saturnine.
 
 And Lucky avoided eye contact with everyone else.
 
@@ -28,11 +28,11 @@ She shook her head. "I don't have an opinion."
 
 "Leave her alone, James," Violet said, and James only barely restrained himself from lashing out.
 
-Eventually, for lack of any other plan, they decided to just keep going the way they were. James knew it would only be a matter of time before they had to sort out what to do for food. They had a bunch of 'reduce hunger' scrolls, but not enough to stay fed forever.
+Eventually, for lack of any other plan, they decided to just keep going the same direction they were. James knew it would only be a matter of time before they had to sort out what to do for food. They had a bunch of 'reduce hunger' scrolls, but not enough to stay fed forever.
 
 * * *
 
-At some point the subject of the battle came up, and Ralph and Violet told their part of it. "We ended up on the other side of the Guardian from the door," Violet said. "We thought we'd smash the spawners, since we couldn't really help you two."
+At some point in the march the subject of the battle came up, and Ralph and Violet told their part of it. "We ended up on the other side of the Guardian from the door," Violet said. "We thought we'd smash the spawners, since we couldn't really help you two."
 
 "Fred was the MVP," James said. "He held the line as long as he could. You, too, Lucky,"
 
@@ -84,7 +84,7 @@ She didn't respond for a few seconds, just marching on. "I forgive you," she sai
 
 James decided to march up ahead to rejoin the rest, just in case he stepped on Lucky's feelings again. Really, did it matter if Lucky was hoarding loot? It wasn't as if any of them would get any if it wasn't for her insane luck. And if she hadn't been hoarding all those scrolls...
 
-Except, now that he thought of it, _where_ had she been hiding them? Scrolls would stack in the inventory, but had Lucky cleared her entire inventory of other items just to stock up on flame spears?
+Except, now that he thought of it, _where_ had she been hiding them? Scrolls would stack in the inventory, but had Lucky cleared her entire inventory of other items just to stock up on flame spears? And where had she gotten them? He would have remembered her either buying or finding a pile of scrolls like that. 
 
 It didn't really make sense, either.
 
@@ -115,6 +115,16 @@ Ralph came over a moment later, and they eagerly hefted it up and brought to the
 "They just do."
 
 "Lucky, what's different this time?" Violet asked in genuine confusion. "This is the same species we used the last time we struck camp."
+
+"Yesterday was lucky---"
+
+"For _nurck's sake!_" James shouted. "What is with you and these hunches? If yesterday was so lucky, why did Fred die? Why were you wrong about what tunnel to take?"
+
+"I---" Lucky started.
+
+"James!" Violet said. "Leave her alone."
+
+"I'm not doing anything until I get an answer," James said.
 
 "Fine, then," Lucky said, looking around as if the world could end any minute. She reached up and tore off her Unwanted bonnet.
 

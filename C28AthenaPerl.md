@@ -2,13 +2,13 @@
 
 They all stared at her.
 
-"Yes," Lucky said, meeting their eyes. Her voice had gained authority, as if a housecat turned out to be an undercover lion. "I'm a Perfect. Down here like everyone else. And because I'm a Perfect, it means I know a lot more about these worlds than you all do. So how about you listen to me?"
+"Yes," Lucky said, meeting their eyes. Her voice had gained authority, as if a house cat turned out to be an undercover lion. "I'm a Perfect. Down here like everyone else. And because I'm a Perfect, it means I know a lot more about these worlds than you all do. So how about you listen to me?"
 
 No one moved.
 
 "If you're angry about the Scale that sent you here, I got nurcked by it, too," she added. "Now before we all die of monsters, let's chop down _that_ tree."
 
-Ralph shrugged, but got up. James followed, and they started hacking away at the tree. Violet stayed with Lucky, staring at her in a mixture of concern and confusion.
+Ralph shrugged, but got up. James followed, not without an hateful glance behind him, and the two started hacking away at the tree. Violet stayed with Lucky, staring at her in a mixture of concern and confusion.
 
 The tree crashed and shattered into logs. James picked up a log and dropped it in the fire. The fire turned a slightly different color, as if in confirmation of Lucky's words. An acrid but sweet scent came from the fire, and James relaxed a little.
 
@@ -84,13 +84,17 @@ James thought about it. He _had_ heard that kind of story, hadn't he? And he'd d
 
 They all obediently pressed their thumbs against their noses.
 
-"Those two trees represent... concepts," she said. "Concepts that don't have direct correspondants in English. We'll call that black tree _hamartia._ You get it by performing various actions that the system doesn't want. If it gets too big, the system will arbitrarily punish you in all sorts of ways. The biggest one is spawning monsters."
+"Those two trees represent... concepts," she said. "Concepts that don't have direct correspondents in English. We'll call that black tree _hamartia._ You get it by performing various actions that the system doesn't want. If it gets too big, the system will arbitrarily punish you in all sorts of ways. The biggest one is spawning monsters."
 
-Every one of them stared at his black tree. All of them were low, except for Lucky's.
+They all looked at their large black trees. James noticed his had grown significantly.
 
-"I wouldn't have traveled with any of you if you had too much _hamartia,_" Lucky said. "It's too dangerous. The incense of this particular tree will increase the minimum threshhold at which the system will spawn monsters, so we're safe."
+"Yeah, see? We're at risk for spawning monsters." Lucky said. 
 
-"What about the other tree?" Violet asked before James could. "Good karma?"
+"What did we do?" James pleaded.
+
+"There's a lot of things that could have happened. But Fred's death probably jacked all of ours up," Lucky said. "That's why we needed to cut down _that_ tree." She pointed at the stump. "The incense produced when burning it will increase the minimum threshhold at which the system will spawn monsters, so we're safe. Other trees won't."
+
+James was about to ask why it didn't matter the previous night, but Violet spoke first. "What about the white tree?" she asked. "Good karma?"
 
 "We'll call it _arete_. Grown by actions the system would reward. Things like being the strongest or winning battles or giving away food. Things that the culture that made this place considered excellent. And you might be able to guess what it does."
 
@@ -120,7 +124,7 @@ Lucky watched them all in silence. The fire crackled.
 
 "Let her answer, Violet," Ralph growled.
 
-"Do you really want to know?" Lucky said. "If what you hope for is or isn't possible, will it give you despair?"
+"Do you really want to know?" Lucky said. "If what you hope for is or isn't possible, will it make you despair?"
 
 "I'd rather know the truth, Lucky. And it sounds awfully like you know the truth," Ralph said.
 

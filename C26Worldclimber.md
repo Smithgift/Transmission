@@ -1,6 +1,6 @@
-## Part Two: the Surface
+## Part Three: the Surface
 
-## Worldclimber.
+## Worldclimber
 
 The guardian them turned to ashes, then fell apart. With a horrendous rumble, James felt the ground shift beneath him like an express lift with the overrides disabled. But a moment later, the ground stopped, and a spiral stone staircase grew out of the chamber's center.
 
@@ -18,7 +18,7 @@ The guardian them turned to ashes, then fell apart. With a horrendous rumble, Ja
 
 "You didn't," Lucky said. "It's just---"
 
-"Less talking and more climbin'," Ralph said, and lifted up Fred by the shoulders. James picked the other end of Fred, which was disturbingly neither a full body nor a torso. James had once tried to lift a man who had broken a leg on the job back on Earth, but it took two people to barely drag him. But somehow---the bizarre systam at work---Fred was almost too light as they hurried up.
+"Less talking and more climbin'," Ralph said, and lifted up Fred by the shoulders. James picked the other end of Fred, which was disturbingly neither a full body nor a torso. James had once tried to lift a man who had broken a leg on the job back on Earth, but it took two people to barely drag him. But somehow---this bizarre system at work---Fred was almost too light as they hurried up.
 
 Lucky and Violet followed shortly behind. Despite all that had happened, James still could think: he had done it! He had worldclimbed! They were about to climb into---
 
@@ -42,7 +42,7 @@ When James stepped out, he almost dropped Fred from shock.
 
 Above wasn't right, because there was no ceiling. The too-bright thing had to be the sun, or something very much like it, but it wasn't quite right either.  All around were real, leafy tree, not organized as in the hydroponics plants on Earth. Yet the trees weren't quite right either---their leaves weren't exactly right, he knew, although how he knew he didn't know. He felt both elated, and disturbed, and terrified.
 
-"It's... it's enough," Fred said, his tense body from all the pain suddenly relaxing. "So this is what the surface... is. I saw it. I'll never see it again. 't's OK. Sorry for doubting you, Lucky." And then he tossed away his Phoenix Sword, and disappeared.
+"It's... it's enough," Fred said, his tense body from all the pain suddenly relaxing. "So this is what the Surface... is like. I saw it. I'll never see it again. It's OK. Sorry for doubting you, Lucky." And then he tossed away his Phoenix Sword, and disappeared.
 
 "Fred!" Violet shouted. "You idiot! We had enough---"
 
@@ -64,7 +64,7 @@ They marched into the forest until sunset. No monsters appeared, but according t
 
 When they did stop for the night, Violet sat with Lucky while Ralph and James hacked away at a tree. "Perfectly harmless," Ralph told him, and so it was: when the tree was felled, it split into two identical logs that tumbled peacefully to the ground. As if the Perfect's finger in the eye to remind the Transmitted, James mused, that even if they existed in a world like the destroyed surface of Earth, they still did not live in real life.
 
-Then again, since he was effectively immortal and the Surface looked an awful lot like old Earth, maybe the Perfects had actually nurcked themselves over by sending their criminals to Destination. Those still on Earth had to suffer.
+Then again, since he was effectively immortal and the Surface looked an awful lot like old Earth, maybe the Perfects had actually nurcked themselves over by sending their criminals to the Destination. Those still on Earth had to suffer.
 
 But looking at the exhausted faces around the campfire, all missing the jubilation of victory, James knew that there was no end of suffering to be found within these worlds, either.
 
