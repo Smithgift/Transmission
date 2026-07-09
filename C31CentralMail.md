@@ -38,7 +38,9 @@ The male guard paused, objections visibly approaching his lips. "Michael, for nu
 
 "Head inside, then, but get some ID, first thing." The guard motioned them in.
 
-Inside, the buildings seemed a mixture of temporary, permanent, and temporary that had become permanent, wood mixed with more of the strange seamless stone. The streets were also of the seamless stuff, but plenty of grass grew everywhere, as well as many plants. "That was close," Violet said.
+Inside, the buildings seemed a mixture of temporary, permanent, and temporary that had become permanent, wood mixed with more of the strange seamless stone. The streets were also of the seamless stuff, but plenty of grass grew everywhere, as well as many plants. Every so many streets, a large brazier burned logs---though not, as they passed by one to smell it, Lucky's special logs. 
+
+"That was close," Violet said.
 
 "Didn't recognize him at first, but I remember the Greenwald Division," Ralph said in a quiet voice. "No idea how many survived, or even if we won."
 
