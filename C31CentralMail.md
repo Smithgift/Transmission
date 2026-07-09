@@ -2,7 +2,7 @@
 
 They did not encounter another patrol, Slaver or Free. By noon the next morning they had found freshly cut stumps, and following them inwards they saw first rich fields of colorful plants then the walls of a town. They got strange looks from farmers as they passed by, but no one tried to stop them.
 
-The guards at the town gate were less sympathetic. The gate itself was small, only enough for maybe one cart, and the walls were made of one continual piece of stone. "More raids these days," one said, hair invisible under his shining blue helmet. "How can we tell you aren't spies?"
+The guards at the town gate were less sympathetic. The gate itself was small, only enough for maybe one cart, and the walls were made of one continual piece of stone. "More raids these days," one said, hair invisible under his softly shining blue helmet. "How can we tell you aren't spies?"
 
 "We killed a party of Slavers," James suggested.
 
@@ -16,7 +16,7 @@ Lucky handed him the map. The guard looked at them with slightly less suspicion,
 
 "We were Salamander Wayfarers," Violet said.
 
-"Yes, and with an Unwanted?" the male guard asked.
+"Yes, and with an Unwanted?" the guard asked.
 
 "Since when do Slavers travel with Unwanted?" the other guard, a woman pleaded.
 
@@ -24,7 +24,7 @@ Lucky handed him the map. The guard looked at them with slightly less suspicion,
 
 Lucky froze.
 
-"Listen," James said firmly. "We have been through a _lot_ of dung over the last few days. We lost one of our members shortly after coming out of the Underneath, we had to ambush Slavers before they ambushed us, and Lucky here has had some trauma about Slavers looking at her all weird."
+"Listen," James said firmly. "We have been through a _lot_ of dung over the last few days. We lost one of our members shortly after coming out of the Underneath, we had to ambush Slavers before they ambushed us, and Lucky here has had some trauma about Slavers..."
 
 The male guard paused, objections visibly approaching his lips. "Michael, for nurck's sake you are the most paranoid guard in the entire town," the female guard said.
 
@@ -38,13 +38,13 @@ The male guard paused, objections visibly approaching his lips. "Michael, for nu
 
 "Head inside, then, but get some ID, first thing." The guard motioned them in.
 
-Inside the buildings seemed a mixture of temporary, permanent, and temporary that had become permanent, wood mixed with more of the strange seamless stone. The streets were also of the seamless stuff, but plenty of grass grew everywhere, as well as many plants. "That was close," Violet said.
+Inside, the buildings seemed a mixture of temporary, permanent, and temporary that had become permanent, wood mixed with more of the strange seamless stone. The streets were also of the seamless stuff, but plenty of grass grew everywhere, as well as many plants. "That was close," Violet said.
 
 "Didn't recognize him at first, but I remember the Greenwald Division," Ralph said in a quiet voice. "No idea how many survived, or even if we won."
 
 Lucky came up to James. "I owe you one," she whispered.
 
-James nodded.
+James nodded without a word.
 
 * * *
 
@@ -72,7 +72,7 @@ The barmaid came up to them. "You're looking for someone?" she asked James.
 
 "Yes. Why?"
 
-"There's a city a bit north from here that has a system for reuniting people. Lots of married couples getting Transmitted, and looking for each other---"
+"Northwood City---it's a bit south of here, has a system for reuniting people. Lots of married couples getting Transmitted, and looking for each other---"
 
 "We have to go there!" James told his party.
 
@@ -87,5 +87,9 @@ The barmaid came up to them. "You're looking for someone?" she asked James.
 "Right," Violet said.
 
 Lucky didn't seem super crazed about it. But she said "I'll go."
+
+"Then it's settled!" Ralph said, pounding the table with strength enough to rattle the dishes.
+
+* * *
 
 That night, crowded in their room, James heard Lucky cry again. But when he looked at her mouth, he saw it was moving without words.

@@ -18,7 +18,7 @@ James didn't argue that that meant the patrol trick was third, not second, as he
 
 "Don't take it," Lucky said. "It looks Slaver as nurck. Here!" she pulled out a map.
 
-They crowded around it. James didn't know how it possibly could have been created except by magic, because it appeared aerial. But the arrival hills were circled and notes indicated the paths of actual patrols.
+They crowded around it. James didn't know how it possibly could have been created except by magic, because it appeared aerial. But the arrival hills were circled and notes indicated the paths of actual patrols. Other marks showed a path across a vaguely definied border and the Free cities.
 
 "Found their compass," Violet said, digging through the same pile of loot. She tapped on it and strange base-8 coordinates appeared above it in glowing text. "We can find our way to the nearest Free town from here."
 
@@ -46,7 +46,7 @@ Then it was over.
 
 All of their black *hamartia*-trees had grown significantly. "What did we do?" James asked. "We killed some evil Slavers!"
 
-"Chances are they either had high _arete_, and the system thinks we shouldn't have killed them, or it was smart enough to detect the treachery," Lucky said. "Or maybe some other reason. The point is, the incense logs aren't perfect."
+"Chances are they either had high _arete_, and the system thinks we shouldn't have killed them, or it was smart enough to detect the treachery," Lucky mused. "Or maybe some other reason. The point is, the incense logs aren't perfect."
 
 "Great," James said. "Absolutely, nurcking great. The system thinks we're the bad guys now."
 
