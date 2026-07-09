@@ -1,6 +1,6 @@
-## The Town
+## Northreach Town
 
-They did not encounter another patrol, Slaver or Free. By noon the next morning they had found freshly cut stumps, and following them inwards they saw first rich fields of colorful plants then the walls of a town. They got strange looks from farmers as they passed by, but no one tried to stop them.
+They did not encounter another patrol, Slaver or Free. By noon the next morning they had found freshly cut stumps, and following them inwards they saw first rich fields of colorful plants then the walls of Northreach, the town they saw on the map. They got strange looks from farmers as they passed by, but no one tried to stop them.
 
 The guards at the town gate were less sympathetic. The gate itself was small, only enough for maybe one cart, and the walls were made of one continual piece of stone. "More raids these days," one said, hair invisible under his softly shining blue helmet. "How can we tell you aren't spies?"
 
