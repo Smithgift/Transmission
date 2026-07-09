@@ -14,13 +14,13 @@ He walked up beside Lucky on their march. "Hey," he said.
 
 At this Violet and Ralph hurried up to the two. "You know how to work that screen?" Ralph asked, curious but not hostile.
 
-"Yes." She tapped her nose with her middle finger and held out the screen. Rather than the large empty box, there were layers of colored bars with strange text on them, some shining in gold. But the colors were dull, as if lifeless. "This is the magic screen. Spells I've learned are in there."
+"Yes." She tapped her nose with her middle finger and held out the screen. Rather than the large empty box, there were kayers of horizontal colored bars with strange text on them, some shining in gold. But the colors were dull, as if lifeless. "This is the magic screen. Spells I've learned are in there."
 
 "How the nurck did you learn spells?" Ralph demanded.
 
-"I'll show you tomorrow."
+"I'll show you in about six days."
 
-"Why tomorrow?" James asked before Ralph could.
+"Why then?" James asked before Ralph could.
 
 "Because that's how the magic system works. Let me go into some detail, OK?" she asked. James could hear the slightest note of fear, as if dreading that now _this_ was going to be the last straw.
 
@@ -76,4 +76,16 @@ They all switched to see them.
 
 "I'm not sure how we could tell that from a normal attack, but yes."
 
-"How about---hold on," Ralph said. "I see someone coming."
+"How about---hold on," Ralph said. "I hear something coming. Form a circle."
+
+Yes, the faintest sound of steps through the underbrush. The party quietly formed a circle, James beside Lucky and Violet.
+
+Another party drew close. They had gear of materials James didn't recognize, and all of them had bolas and strange two-pronged spears. "Oh, hey!" their leader, a thin Worker said cheerfully. "You just worldclimbed?"
+
+"Yes," Ralph said with a note of suspicion.
+
+"We're a patrol with the local city. We can help lead you back."
+
+James felt uncertain. "Sure," Ralph said conversationally. "We did get badly banged up by the Guardian. Does one of you have any salves? You could check Lucky here over. She was really hurt."
+
+James stiffened, then relaxed. Ralph didn't trust them, and neither should he.
