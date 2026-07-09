@@ -12,7 +12,7 @@ Tim Ruby: A happy Holdsman in the Blue Sunrise Hold.\
 Ralph ML: A big Worker man who leads the party of Wayfarers that James just joined.\
 Violet Haskel: A thoughtful Thinker woman in Ralph's party.\
 Fred Python: A tall Worker with Ralph's party.\
-Lucky: A worn Unwanted girl with strong and unusual opinions about the worlds.
+Lucky (Athena Perl): A Perfect who has been Transmitted, secretly posing as an Unwanted so horrible things don't happen to her. She knows a lot about the Tower of Worlds.
 
 The story so far:
 
@@ -70,6 +70,13 @@ Chapter 22: The party searches the lower tunnels in search of rooms. Lucky, in t
 
 Chapter 23: The party agrees to assault a Labyrinth. On arrival, they find the Lion Trog Tribe planning to assault, themselves. As whoever wins will close the Labyrinth permanently, Fred argues they should join the Lions. Lucky argues that the day is unlucky, and waiting one more day would be better. Eventually the party sides with Lucky.
 
-Chapter 24: They wait a day. The worldclimbers of the party tell James about the War of Indenture on the Surface: a perpetual struggle between slave-holding cities and free cities, both of which need large numbers of agricultural workers to keep themselves fed. Meanwhile, the Lions try but are destroyed. James rages, then **MINOR RETCON** feels guilt for not telling them.
+Chapter 24: They wait a day. The worldclimbers of the party tell James about the War of Indenture on the Surface: a perpetual struggle between slave-holding cities and free cities, both of which need large numbers of agricultural workers to keep themselves fed. Meanwhile, the Lions try but are destroyed. James rages, then feels guilt for not telling them.
 
 Chapter 25: The party assaults the Labyrinth on Lucky's perfect day, and find the monsters much less numerous. On attacking the Guardian, however, monsters spill from behind while the spawners activate, and in the chaos Fred is badly injured. Lucky spams fire spears at the end and the Guardian flashes into light. 
+
+Chapter 26: They've killed the Guardian, and worldclimbed! But Fred is too badly injured to continue, and after seeing the Surface for himself, throws away his Phoenix Sword and dies. Tension begins building in the party.
+
+Chapter 27: The tension grows, and suddenly they start arguging with Lucky. Why didn't her luck help Fred? And where did she get all of those fire spear scrolls? Things snap when the rest of the party cuts down what (in her opinion) is the wrong tree, and after the argument grows she ends up revealing her hair---she's a perfect!
+
+Chapter 28: Lucky is actually Athena Perl, a Perfect who was Transmitted after falling in love with an Unwanted named Joshua. She has a bonnet because otherwise she's been horribly mistreated and abused by the rest of the Transmitted. She knows things about the Tower of Worlds (as she calls it) and that the screen of two trees represents what this mysterious culture considered good and evil. The white tree, _arete_, makes better drops, and thus gave Lucky "luck." The black tree spawns monsters, and they have to burn the right kind of logs to prevent them from spawning. The party accepts her, and tension dissipates... sort of.
+
