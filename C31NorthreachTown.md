@@ -80,7 +80,7 @@ The barmaid came up to them. "You're looking for someone?" she asked James.
 
 "Sure, why not?" Ralph said. "You've been good to us."
 
-"You do realize there's not a huge chance your girlfriend is up here," Violet said. "And if she's not, you'll be waiting a while."
+"I'll come, too, but you do realize there's not a huge chance your girlfriend is also up here, right?" Violet said. "And if she's not, you'll be waiting a while."
 
 "I have to take it," James said, determination entering his voice. "This is all because of what happened to her. I can't leave her now."
 
