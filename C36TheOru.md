@@ -34,7 +34,7 @@ The campfire watched Lucky without a word.
 
 "It's not from this planet, isn't it?" Violet asked.
 
-"If you mean 'Earth' that's correct. We are on an artificial world designed to simulate the homeworld of the Oru."
+"If you mean 'Earth' that's correct. We are on an artificial world designed to simulate what we believe was the homeworld of the Oru."
 
 "The Oru?" Stella asked. "What---what were they like?"
 

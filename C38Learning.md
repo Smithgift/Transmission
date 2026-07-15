@@ -1,7 +1,6 @@
-##
+## Learning spells
 
-
-Lucky poked the embers back into life with another log. "This is a good day to show you all how to learn magic."
+James did manage to sleep somehow. When he woke up, he saw Lucky poking the embers back into life with another log. "This is a good day to show you all how to learn magic."
 
 They all gathered around.
 

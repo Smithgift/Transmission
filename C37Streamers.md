@@ -32,11 +32,11 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "Though," Stella said. "I'm confused. If the Perfects can send monsters, wouldn't it make more sense for us to stay in a big city?"
 
-Lucky shook her head. "They can summon a monster based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. A city like New London would have such immense total _hamartia_ that it could summon a Titan outright."
+Lucky shook her head. "They can summon a monster based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. A city like Northwood would have such immense total _hamartia_ that it could summon a Titan outright."
 
 "Does the cost of summoning not go up, then?" Violet asked.
 
-"It does go up, but let's just think about it. I and two other people the Perfects really hate are in a group together. Even for the thousands of credits it would take to summon a Titan, it's an irresistable opportunity to nurck all of us over. We can't let them have that opportunity."
+"It does go up, but let's just think about it. I and two other people the Perfects really hate are in a group together on a higher world. Even for the thousands of credits it would take to summon a Titan, it's an irresistable opportunity to nurck all of us over. We can't let them have that opportunity."
 
 "But then we can't go anywhere," Violet said.
 
