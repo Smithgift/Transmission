@@ -1,10 +1,10 @@
 ## Machinery 
 
-They arrived in Northwood City just before nightfall. As they had been told, their IDs were welcome there, and the guards hurried them in before they closed the porticulis for the night.
+They arrived in Northwood City just before nightfall. As they had been told, their IDs were welcome there, and the guards hurried them in before they closed the portcullis for the night.
 
 The fire pits everywhere acted as kinds of streetlights, illuminating the darkened streets as they looked for a inn. To keep monsters away, but they weren't Lucky's special logs. "Hey, Lucky," James whispered. "Are we really safe from monsters in town?"
 
-Lucky shook her head. "Probably not. They're not dealing with spawns because monsters can only spawn in sufficent darkness, but outside the walls, they'd be free to spawn and try to attack the walls. Or they may be burning some incense logs by accident. Or their _hamartia_ is low enough a regular fire will keep them at bay. Ours isn't."
+Lucky shook her head. "Probably not. They're not dealing with spawns because monsters can only spawn in sufficient darkness, but outside the walls, they'd be free to spawn and try to attack the walls. Or they may be burning some incense logs by accident. Or their _hamartia_ is low enough a regular fire will keep them at bay. Ours isn't."
 
 James didn't know what to add to that.
 
@@ -28,7 +28,7 @@ James felt strange, but bit into the bread to find it actually tasted really goo
 
 James didn't know how to answer that.
 
-"We still have some money here," Ralph said. "We can take a bit of a break as we figure out what to do next."
+"We still have some rare materials," Ralph said. "We can take a bit of a break as we figure out what to do next."
 
 "Yeah," Lucky mumbled.
 
@@ -52,7 +52,7 @@ James went down the streets, finding himself strangely lonely without his party.
 
 But Stella was more important. They all would sincerely understand that. And maybe the party would have less tension if he didn't keep accidentally setting off Lucky.
 
-After accosting some other Transmitted, he found his way to the squat building where they tried to reconnect people. Stepping through the wooden doors, he saw rows and rows and rows of filing cabinents. He didn't know if that was a good sign or a bad sign. No line, so he just went up to clerk. "Hey, I'm looking for someone."
+After accosting some other Transmitted, he found his way to the squat building where they tried to reconnect people. Stepping through the wooden doors, he saw rows and rows and rows of filing cabinets. He didn't know if that was a good sign or a bad sign. No line, so he just went up to clerk. "Hey, I'm looking for someone."
 
 "Just fill out this form," she said, and pulled out what appeared to be a form reproduced by printing press. "Then come back each week."
 
@@ -60,7 +60,7 @@ After accosting some other Transmitted, he found his way to the squat building w
 
 The clerk gestured around. "We have a lot of people looking for others. It will take some time to search through our records. But please, fill it out. Perhaps the person you're looking for is already looking for."
 
-That was a comforting thought. He quickly filled out the former.
+That was a comforting thought. He quickly filled out the form.
 
 * * *
 

@@ -6,9 +6,9 @@ The road to Northwood City was not long, and thankfully it was still heavily for
 
 To find one of Lucky's special trees, they had to go significantly off the path---but no one wanted a nasty surprise overnight.
 
-"Hey, Lucky," James asked that night. "How do you shrink your trees?"
+"Hey, Lucky," James asked that night. "How do you shrink your karma trees?"
 
-Lucky was staring into the flames, as if looking at things only she could see. "You don't," she said after a pause. "They both just shrink over time."
+Lucky was staring into the flames, as if looking at things only she could see. "You don't," she said after a pause. "The destiny trees just shrink over time."
 
 "So, wait," James said. "We're just stuck with high _hamartia_ until it cools down?"
 
@@ -42,7 +42,7 @@ No monsters attacked during the night. The next morning, they went on their way,
 
 James walked up close to Lucky. She looked up at him---James realized that after all he had said about Perfects, she might never fully trust him. If she ever fully trusted anyone anymore. "Hey, you said the magic stat is called Crane?"
 
-"Yeah. Let me teach you all the paragon-animals, so you know what the stats do," she offered, as if a peace offering.
+"Yeah. Let me teach you all the paragon-animals, so you know what the stats do," she suggested, as if a peace offering.
 
 They gathered around her.
 
@@ -75,11 +75,11 @@ Meanwhile, James looked at his stats with new knowledge.
 
 "But how does it _work?_" Violet pleaded. "It's not like the system could help us trick them, could it?"
 
-Lucky shrugged. "We don't know if the system can affect our nervous systems. The problem is, how could we test it? To have a real ambush, the people you're ambushing can't be letting themselves be ambushed as a test."
+Lucky shrugged. "We don't know if the system can affect or read from our nervous systems. The problem is, how could we test it? To have a real ambush, the people you're ambushing can't be letting themselves be ambushed as a test."
 
-"You _tested_ it?"
+"You _tested_ it?" Jamesa asked.
 
-"We tried. Why?"
+"We tried. Why?" Lucky asked.
 
 "So you didn't just learn from the manual?"
 
