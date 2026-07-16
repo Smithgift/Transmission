@@ -2,7 +2,7 @@
 
 They set off the next day, after getting their ID cards. Without the ability to take pictures, the cards just had their descriptions, but it would still likely be enough, James mused. As long as no one wanted to see under Lucky's bonnet.
 
-The road to Northwood City was not long, and thankfully it was still heavily forested. Due to the need to keep the fires burning, most cities were near natural or artificial forests. James still noticed that the road they travelled had large patches of stumps along both sides---travelers wanting safety, or at least what they thought would bring them safety.
+The road to Northwood City was not long, and thankfully it was still heavily forested. Due to the need to keep the fires burning, most cities were near natural or artificial forests. James still noticed that the road they traveled had large patches of stumps along both sides---travelers wanting safety, or at least what they thought would bring them safety.
 
 To find one of Lucky's special trees, they had to go significantly off the path---but no one wanted a nasty surprise overnight.
 
@@ -24,7 +24,7 @@ Lucky was staring into the flames, as if looking at things only she could see. "
 
 Even if James knew the karma or whatever-the-nurck the creators of this place called it decayed over time, he could have sworn his trees hadn't shrunk at all, not even a twig.
 
-"We're still over the spawning threshhold," Lucky said. "I do have a spell that increases the threshold, but I have a limited number of blue scrolls to power it. The right stars aren't shining."
+"We're still over the spawning threshold," Lucky said. "I do have a spell that increases the threshold, but I have a limited number of blue scrolls to power it. The right stars aren't shining."
 
 "When the stars were shining, why didn't you use it?" James asked.
 
@@ -77,7 +77,7 @@ Meanwhile, James looked at his stats with new knowledge.
 
 Lucky shrugged. "We don't know if the system can affect or read from our nervous systems. The problem is, how could we test it? To have a real ambush, the people you're ambushing can't be letting themselves be ambushed as a test."
 
-"You _tested_ it?" Jamesa asked.
+"You _tested_ it?" James asked.
 
 "We tried. Why?" Lucky asked.
 
