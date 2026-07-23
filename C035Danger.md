@@ -14,7 +14,7 @@
 
 "I'll tell you why when we're out of here," Lucky said. "But we need to leave _now!_"
 
-James looked around. The passerbies peacefully walked and chatted, and from the inside of the tavern laughter roared and dishware clattered. Nothing _seemed_ off but the terror on Lucky's face. And that terror was real.
+James looked around. The passerbies peacefully walked the streets and chatted with each other, and from the inside of the tavern laughter roared and dishware clattered. Nothing _seemed_ off but the terror on Lucky's face. And that terror was real.
 
 "I have... stuff I need to pack," Stella said.
 
@@ -26,7 +26,7 @@ James looked around. The passerbies peacefully walked and chatted, and from the 
 
 "Let's get moving," Violet announced. "Ralph and I can get food, and you two can pack. Lucky---"
 
-"I'll be with you and Ralph," Lucky said. "We'll be a bit safer."
+"I'll be with you and Ralph," Lucky said. "It'll be a bit safer."
 
 James took Stella's hand as they ran back towards her apartment. "James," Stella said. "Do you trust these people?"
 
@@ -78,7 +78,7 @@ When their turn finally came, James soon found out. The teller, an old Worker wo
 
 "Stella Cobol."
 
-The teller looked in a filing cabinet, breathing threats and imprecations that were not quite inaudible. "What's the name again."
+The teller looked in a filing cabinet, breathing threats and imprecations that were not quite inaudible. "What's the name again?"
 
 "Stella Cobol."
 
@@ -98,11 +98,11 @@ _"Why?"_
 
 "I'm leaving this area."
 
-"Oh, so you think you two are going to succeed where no one else has---"
+"Oh, so you think you two are going to succeed worldclimbing where no one else has---"
 
 "Excuse me," James interrupted, restraining his anger. "This is Stella's money---"
 
-"Stop talking when someone else is talking!" the teller yelled. "No one respect---you nurcking Unwanted! That's not where the line starts!"
+"Stop talking when someone else is talking!" the teller yelled. "No one respects their eld---you nurcking Unwanted! That's not where the line starts!"
 
 Lucky had slipped down the line to them. "James, we need to get going within the next half an hour---"
 
@@ -120,7 +120,7 @@ That apparently also was the last straw for the woman. "OUT! _OUUT!!_ AND NEVER 
 
 Lucky was waiting, even more concerned. "We don't have any time left. This way---"
 
-"But I need to---"
+"But I need to---" Stella started.
 
 "You need to get out before it's too late!"
 
@@ -136,7 +136,7 @@ When they reached the west gate, they saw an ongoing argument between the guards
 
 "It's part of our religion," James said calmly.
 
-The guards looked at him, as well as Stella and Lucky with an even stranger expression.
+The guards looked at him with a strange expression, as well as Stella and Lucky with an even stranger expression.
 
 Stella started to speak, but James continued, in a confident tone. "We can't talk about it to outsiders, but there are certain rituals we can only do at nightfall in a forest. Secret sect, can't talk about the details of course."
 
@@ -148,7 +148,7 @@ The guards conferred. "I mean... we do have rules on respecting religious libert
 
 "Well, if you finish with your ritual before nightfall, you can come back in," the skeptical guard said. "Other than that, you're on your own." The guards hurried them out.
 
-"Best of luck with it!" the less skeptical guard cried.
+"Best of luck with it!" the less skeptical guard called from behind.
 
 Off they went as the sun drooped lower and lower. "I... I wish you hadn't lied," Stella said.
 

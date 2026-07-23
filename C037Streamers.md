@@ -4,7 +4,7 @@
 
 "Because the nature of the backstory leads to the problem," Lucky said. "From what we've gathered, the Oru believed in various forms of communication with the dead. You paid a kind of shaman or witch-doctor, or perhaps priest would be more accurate, to offer sacrifices to the dead, that would increase their _arete._ Or, if you hated the decedent, you could pay a priest, possibly even the same priest, to curse him by increasing his _hamartia._ With this in mind, check out your trees."
 
-Everyone checked. All their *hamartia*-trees had grown rapidly, but Stella's, Lucky's, and James had skyrocketed.
+Everyone checked. All their *hamartia*-trees had vastly grown, but Stella's, Lucky's, and James had skyrocketed.
 
 Stella figured it out first. "The Perfects. They can do something like that, right? They can send us bad stuff."
 
@@ -48,7 +48,7 @@ Lucky shook her head. "They can only summon a monster based on the total _hamart
 
 "You used them," Violet stated. It wasn't a question.
 
-"Yes," Lucky said. "But after I met Joshua, I quit. I didn't want to see anyone suffer any more."
+"Yes," Lucky said, her voice without defensiveness. "But after I met Joshua, I quit. I didn't want to see anyone suffer any more."
 
 "Joshua?" Stella asked.
 
@@ -80,7 +80,7 @@ The tension finally dissipated as they all nodded their heads.
 
 "I have so many questions about... things I've come across," Stella said.
 
-"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. The spell I cast at the beginning you'd call is what you'd 'sanctuary', which makes it harder for monsters to spawn."
+"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. The spell I cast at the beginning is what you'd call  'sanctuary', which makes it harder for monsters to spawn."
 
 "I'm assuming it's not foolproof," Stella said.
 
@@ -96,7 +96,7 @@ The tension finally dissipated as they all nodded their heads.
 
 * * *
 
-That night, Stella parked her sleeping bag next to James. "To think we had almost found happiness," she whispered.
+That night, Stella parked her sleeping roll next to James. "To think we had almost found happiness," she whispered.
 
 "Stupid dungpit Perfects."
 
