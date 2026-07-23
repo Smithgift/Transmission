@@ -1,8 +1,8 @@
 ## The Oru
 
-They only stopped when Lucky found one of her special trees. The strange stars shone over their campfire, and James found himself truly uncomfortable.
+They only stopped when Lucky found one of her special trees. The stars shone over their campfire by the time it was burning, and James found himself truly uncomfortable.
 
-The moment the fire was burning, Lucky took out a scroll and threw it inside. The flames blazed blue for a moment. "_Oru Aru Ali Paru Paru Pari._" she chanted.
+When the fire burned bright, Lucky took out a scroll and threw it inside. The flames blazed blue for a moment. "_Oru Aru Ali Paru Paru Pari._" she chanted.
 
 "You better have an _extremely_ good reason for this, Lucky," Ralph said.
 
@@ -34,7 +34,7 @@ The campfire watched Lucky without a word.
 
 "It's not from this planet, isn't it?" Violet asked.
 
-"If you mean 'Earth' that's correct. We are on an artificial world designed to simulate what we believe was the homeworld of the Oru."
+"If you mean 'Earth' that's correct. We are on what we believe to be an artificial world designed to simulate the homeworld of the Oru."
 
 "The Oru?" Stella asked. "What---what were they like?"
 
@@ -46,7 +46,7 @@ The campfire watched Lucky without a word.
 
 "Is this some kind of world they created?" Ralph asked.
 
-"Yes. We're not sure why, though, or even how."
+"Yes. We're not sure how, let alone why."
 
 "Is it virtual?" James asked.
 

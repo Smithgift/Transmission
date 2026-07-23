@@ -2,9 +2,9 @@
 
 "If that was the problem, why not start with that?" Ralph said. "Why all the backstory?"
 
-"Because the nature of the backstory leads to the problem. From what we've gathered, the Oru believed in various forms of communication with the dead. You paid a kind of shaman or witch-doctor, or perhaps priest would be more accurate, to offer sacrifices to the dead, that would increase their _arete._ Or, if you hated the decedent, you could pay a priest, possibly even the same priest, to curse him by increasing his _hamartia._ With this in mind, check out your trees."
+"Because the nature of the backstory leads to the problem," Lucky said. "From what we've gathered, the Oru believed in various forms of communication with the dead. You paid a kind of shaman or witch-doctor, or perhaps priest would be more accurate, to offer sacrifices to the dead, that would increase their _arete._ Or, if you hated the decedent, you could pay a priest, possibly even the same priest, to curse him by increasing his _hamartia._ With this in mind, check out your trees."
 
-Everyone checked. All their *hamartia*-trees had grown rapidly, but Stella's and James had skyrocketed.
+Everyone checked. All their *hamartia*-trees had grown rapidly, but Stella's, Lucky's, and James had skyrocketed.
 
 Stella figured it out first. "The Perfects. They can do something like that, right? They can send us bad stuff."
 
@@ -28,11 +28,11 @@ James breath caught in his throat. He wasn't unlucky in those first lives in the
 
 "It must cost them something," James said, holding his forehead.
 
-"That's correct," Lucky said. "I don't know how it works, but you have to pay so much money to the Supreme Council to get so many credits. And then depending on what you want to do or what world you're in, it costs different amounts of credits."
+"That's correct," Lucky said. "I don't know how it works on the Oru's system's end, but you have to pay so much money to the Supreme Council to get so many credits. And then depending on what you want to do or what world you're in, it costs different amounts of credits."
 
 "Though," Stella said. "I'm confused. If the Perfects can send monsters, wouldn't it make more sense for us to stay in a big city?"
 
-Lucky shook her head. "They can summon a monster based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. A city like Northwood would have such immense total _hamartia_ that it could summon a Titan outright."
+Lucky shook her head. "They can only summon a monster based on the total _hamartia_---the black tree---of everyone nearby. Little _hamartia_, little monsters. There's a cooldown, too. But a city like Northwood would have such immense total _hamartia_ that the Perfects could summon a Titan outright. We'd be trapped in the walls as it destroyed the city."
 
 "Does the cost of summoning not go up, then?" Violet asked.
 
@@ -76,11 +76,11 @@ Lucky shook her head. "They can summon a monster based on the total _hamartia_--
 
 "It's a deal, then," James said. "We're heading up."
 
-The tension dissipated as they all nodded their heads.
+The tension finally dissipated as they all nodded their heads.
 
 "I have so many questions about... things I've come across," Stella said.
 
-"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. The spell I cast at the beginning you'd call 'sanctuary', which makes it harder for monsters to spawn."
+"We can talk in private later," Lucky said. "Right now, though, we need to keep a watch. The spell I cast at the beginning you'd call is what you'd 'sanctuary', which makes it harder for monsters to spawn."
 
 "I'm assuming it's not foolproof," Stella said.
 

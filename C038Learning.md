@@ -14,7 +14,7 @@ Lucky took out one of those 'nurcking white bowls' from her inventory, dropped a
 
 "_That's_ pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her left pinky, then tapped a button. Then she pointed at a tree stump. It sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way, but it's slow and hard to use in battle.
 
-"There's a faster way. If you chant the first few words of the scroll, with correct pitch and intonation, you can use it without fingers or magic screen. Once you have them memorized, it's a lot quicker to use magic that way. Just be careful you don't use it too often, or you'll max out your magic bar and bad stuff happens."
+"There's a faster way. If you chant the first few words of the scroll, with correct pitch and intonation, you can use it without the magic screen. Once you have them memorized, it's a lot quicker to use magic that way. Just be careful you don't use it too often, or you'll max out your magic bar and bad stuff happens."
 
 "What kind of bad stuff?" James asked.
 
@@ -46,11 +46,11 @@ The camp fell quiet. "Lucky, is this a day when we can learn spells?" Violet ask
 
 "Why don't we learn all the blue spells we can?"
 
-"How can you even tell what the color is?" Ralph asked.
+"How can you even tell what the color is?" Ralph asked. "The scrolls all look the same."
 
 "It's written in Oru, presumably," Stella said.
 
-"In Oru numerology, when you add up the values of all the characters, yes," Lucky said.
+"In Oru numerology, when you add up the values of all the characters, yes," Lucky said. "The last digit gives the color."
 
 "All this time we've been playing on extra hard mode simply because we can't read Oru," James said. "Whoever designed this place is probably rolling in his grave."
 
@@ -76,7 +76,7 @@ Between them they had one more 'sanctuary', which Ralph got, one more temporary 
 
 "Nurck," Ralph said, shaking his head. "They'll know anything we try to do."
 
-"But we have to do something," Stella said. "I'm not going to wait until they find some way to kill or spawn a Titan or something."
+"But we have to do something," Stella said. "I'm not going to wait until they find some way to kill us or spawn a Titan or whatever other awful thing they can think of."
 
 "What _is_ a Titan?" James asked.
 
@@ -96,7 +96,7 @@ They all looked at her.
 
 "I thought the Slavers were using items to spawn them," Ralph said, shaking his head.
 
-"Oh, that, too, and it's really convenient for the Perfects, because then it's non-obvious that we're doing it," Lucky said. "Well, __they_ are. I stopped."
+"Oh, that, too, and it's really convenient for the Perfects, because then it's non-obvious that we're doing it," Lucky said. "Well, _they_ are. I stopped."
 
 "Let's slow down and think about this," Stella said. "We need a key. There's no way the five of us could potentially kill three Titans on our own. You'd need an army. So we need to buy the refined materials, which means we need money. Lots of it."
 
