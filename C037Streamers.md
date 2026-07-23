@@ -16,7 +16,7 @@ James felt himself chill. "All this time. We've all been watched, like some kind
 
 James realized Stella wasn't there when Lucky had mentioned the basic details. But by the horrified expression, she had to have figured it out. "How awful. And they're watching both James and I, correct?"
 
-"If you ticked off a Perfect, they've got a system rigged to watch your every move. We based the Watchers' survellience systems off the technology. Every incident. Every decision. Every moment. Catalogued for review and enjoyment. And if there's any dull periods, they can summon monsters."
+"If you ticked off a Perfect, they've got a system rigged to watch your every move. We based the Watchers' surveillance systems off the technology. Every incident. Every decision. Every moment. Cataloged for review and enjoyment. And if there's any dull periods, they can summon monsters."
 
 James breath caught in his throat. He wasn't unlucky in those first lives in the Underneath, any more than Lucky was actually lucky. That dungpit Perfect had to have been sending him those crabs whenever he had stopped to take a breath.
 
@@ -36,7 +36,7 @@ Lucky shook her head. "They can only summon a monster based on the total _hamart
 
 "Does the cost of summoning not go up, then?" Violet asked.
 
-"It does go up, but let's just think about it. I and two other people the Perfects really hate are in a group together on a higher world. Even for the thousands of credits it would take to summon a Titan, it's an irresistable opportunity to nurck all of us over. We can't let them have that opportunity."
+"It does go up, but let's just think about it. I and two other people the Perfects really hate are in a group together on a higher world. Even for the thousands of credits it would take to summon a Titan, it's an irresistible opportunity to nurck all of us over. We can't let them have that opportunity."
 
 "But then we can't go anywhere," Violet said.
 
@@ -84,7 +84,7 @@ The tension finally dissipated as they all nodded their heads.
 
 "I'm assuming it's not foolproof," Stella said.
 
-"It isn't, it just raises the threshhold to the max. But our _hamartia_ is so high that we could get jumped by monsters even with the incense logs."
+"It isn't, it just raises the threshold to the max. But our _hamartia_ is so high that we could get jumped by monsters even with the incense logs."
 
 "That's what these things are called?" Ralph asked.
 
