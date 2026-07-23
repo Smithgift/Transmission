@@ -84,4 +84,11 @@ Chapter 29: Lucky explains the strange magic system of the Tower of Worlds: to c
 
 Chapter 30: Though trickery, they ambush and kill the patrol, which **RETCON ALERT** everyone but James knew were Slavers all along. They head their way, only to be attacked by monsters during the night---it turns out their actions have jacked up their _hamartia_ so high that now they're in constant danger of monsters spawning, even with Lucky's special logs. 
 
-Chapter 31: They arrive at a town, where Ralph talks to a guard about an old battle they both fought in (and Ralph died in.) They file for ID cards that will make them welcome in most of the Free cities, and then discuss their next moves. A barmaid tells them that Northwood City has a system for reuniting separated people and everyone, but strangely Lucky, is psyched about going there.
+Chapter 31: They arrive at a town, where Ralph talks to a guard about an old battle they both fought in (and Ralph died in.) They file for ID cards that will make them welcome in most of the Free cities, and then discuss their next moves. A barmaid tells them that Northwood City has a system for reuniting separated people and everyone, except strangely for Lucky, is psyched about going there.
+
+Chapter 32: On the trip, Lucky tells the others about the true namse of the stats, named after animals considered paragons: Lion, Gorilla, Crane, Speed, and Ambush, though Lucky is uncertian about the specific animals in the last two. Lucky mentions the Perfects aren't certain despite testing it, and it wasn't in the manual, but then immediately ends the discussion.
+
+Chapter 33: They arrive at Northwood City, and discuss what to do. The rest party wants to keep looking for jobs to pay for much better gear, but James wants to look for Stella. While musing about his next steps, he shows up at a factory's open house and sees the many machines there, following rules which do not exist on Earth. Passing by the workshop, James spots Stella herself.
+
+Chapter 34: It _is_ Stella! They go home to Stella's apartment, where she reveals she is saving money for a future house for them to live together in. James proposes, and they head to say goodbye to the rest of his party. But Lucky takes them both aside immediately and warns them that they are in grave danger.
+
