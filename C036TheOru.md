@@ -74,7 +74,7 @@ Everyone raised hands, and then the tension that had started to brew started dis
 
 "_Ragnarok Clash._" James said.
 
-"Perfect example. Imagine the only thing that survived of humanity was a functioning client for _Ragnarok Clash,_ connecting to a server no one knows where. No documents but the manual. No way to understand what the symbols meant in it, except by trial and error in-game. No pictures but the in-game graphics. No music but its sound track. And what would the alien archaelogist think? That we were fervent believers in the Norse gods?"
+"Perfect example. Imagine the only thing that survived of humanity was a functioning client for _Ragnarok Clash,_ connecting to a server no one knows where. No documents but the manual. No way to understand what the symbols meant in it, except by trial and error in-game. No pictures but the in-game graphics. No music but its sound track. And what would the alien archaeologist think? That we were fervent believers in the Norse gods?"
 
 "So what you're saying is all we know is this VRMMORPG," Ralph said, shaking his head. "That's all that's left of the Oru."
 

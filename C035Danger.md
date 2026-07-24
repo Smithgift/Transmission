@@ -36,7 +36,7 @@ He thought of it only for a moment. "With my life."
 
 * * *
 
-James could see Stella had settled in, buying nicknacks and decorations and things that were not for mere survival. But Stella ignored them as she dug under her bed for a large box. She pulled out quality gear, but gear clearly made in the Underneath. "I thought I'd never have to adventure again," she said.
+James could see Stella had settled in, buying knickknacks and decorations and things that were not for mere survival. But Stella ignored them as she dug under her bed for a large box. She pulled out quality gear, but gear clearly made in the Underneath. "I thought I'd never have to adventure again," she said.
 
 "Do you know where the rest of your Tribe is?" James asked.
 
