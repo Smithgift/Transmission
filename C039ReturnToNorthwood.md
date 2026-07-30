@@ -20,11 +20,11 @@ No, they couldn't. Even they had limits, given by the Oru. But were the Oru also
 
 "It's not," James agreed. They approached the edge.
 
-"I want my nurcking money!" shouted a protestor.
+"I want my nurcking money!" shouted a protester.
 
 James tapped one of the nearby ones. "What's going on?"
 
-"The bank had a run last night," the close protestor said. "They said the manager fled with the money last night, and they ran out of the rest."
+"The bank had a run last night," the close protester said. "They said the manager fled with the money last night, and they ran out of the rest."
 
 "Nurck," Ralph said.
 
@@ -114,11 +114,11 @@ The quartermaster looked almost offended that an Unwanted would insist on raisin
 
 The quartermaster took down their names, and they went to the machines themselves. "What happened at Seven Fords?" James asked.
 
-"I've been asking," Ralph said. "Tactical victory for the slavers, but strategic defeat, since they took so many causalties they couldn't advance. And that's all I'm going to say about it."
+"I've been asking," Ralph said. "Tactical victory for the slavers, but strategic defeat, since they took so many casualties they couldn't advance. And that's all I'm going to say about it."
 
 James didn't press. Even if no one really died, he wondered if anyone could truly get used to violence in the Tower of Worlds.
 
-Stella was meanwhile explaining to Lucky about the vehicles, who listened in genuine interest. "...can't use turrets, because they take too much power and without stablizers they'd be completely inaccurate while moving."
+Stella was meanwhile explaining to Lucky about the vehicles, who listened in genuine interest. "...can't use turrets, because they take too much power and without stabilizers they'd be completely inaccurate while moving."
 
 "Why can't they just stop and fire?" Violet asked before James could.
 

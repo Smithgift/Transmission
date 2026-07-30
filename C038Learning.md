@@ -64,7 +64,7 @@ The camp fell quiet. "Lucky, can we all learn spells today?" Violet asked.
 
 Blue seemed to be spells around healing, growth, or protection. James got another sanctuary spell like Lucky had, and one that gave a temporary shield. "Are there better names for these?" James asked.
 
-"A possible translation of the actual name of 'sactuary' is 'When a man by a peaceful river sits,'" Lucky said.
+"A possible translation of the actual name of 'sanctuary' is 'When a man by a peaceful river sits,'" Lucky said.
 
 "I think I'll stick with 'sanctuary.'" James said.
 
