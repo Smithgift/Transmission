@@ -8,9 +8,9 @@ Lucky took out one of those 'nurcking white bowls' from her inventory, dropped a
 
 "How the nurck was anyone ever supposed to figure _that_ out?" Ralph about yelled.
 
-"Oh, it's explained in the manual. It's just that the Perfects don't give it out, and it's written in Oru."
+"Oh, it's explained in the manual. It's just that the Supreme Council doesn't give it out, and it's written in Oru."
 
-"How do you access it?" Violet asked.
+"How do you access magic afterwards?" Violet asked.
 
 "_That's_ pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her left pinky, then tapped a button. Then she pointed at a tree stump. It sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way, but it's slow and hard to use in battle.
 
@@ -26,7 +26,7 @@ Lucky took out one of those 'nurcking white bowls' from her inventory, dropped a
 
 "The room curse where you can't hit a certain pitch..." James started.
 
-"Exactly. An anti-magic room curse, as clearly described in Oru on the door to a room."
+"Exactly. An anti-magic room curse, as clearly described in Oru poetry on the door to a room."
 
 "You knew all the room curses and didn't tell us?" Ralph asked, shaking his head.
 
@@ -64,7 +64,7 @@ The camp fell quiet. "Lucky, is this a day when we can learn spells?" Violet ask
 
 Blue seemed to be spells around healing, growth, or protection. James got another sanctuary spell like Lucky had, and one that gave a temporary shield. "Are there better names for these?" James asked.
 
-"A possible translation of 'sactuary' is 'When a man by a flowing river sits,'" Lucky said.
+"A possible translation of the actual name of 'sactuary' is 'When a man by a peaceful river sits,'" Lucky said.
 
 "I think I'll stick with 'sanctuary.'" James said.
 
@@ -94,7 +94,7 @@ They all looked at her.
 
 "No, really," Lucky said. "The Perfects always spawn a Titan to attack a major city if one side gets too close to winning."
 
-"I thought the Slavers were using items to spawn them," Ralph said, shaking his head.
+"I thought the Slavers were using items to spawn those," Ralph said, shaking his head.
 
 "Oh, that, too, and it's really convenient for the Perfects, because then it's non-obvious that we're doing it," Lucky said. "Well, _they_ are. I stopped."
 
@@ -108,4 +108,38 @@ They all looked at her.
 
 "As much as I hate the Slavers, it's high-risk," Lucky said. "And it's only the high-ranking Slavers who'd even have key fragments laying around."
 
+"Would those high-ranking Slavers even be roaming the Surface?" James asked.
 
+Ralph shook his head. "Not unless they're leading an army. Most of the nurckers just stay safe in their citadels in Slave cities."
+
+"Which brings us back to needing an army," Violet mused sadly.
+
+Stella looked distressed by all this. "Slaver or not, I don't like killing people. Much better to just buy the stuff we need. I do have a lot saved up."
+
+"How much?" Lucky asked.
+
+"Around 200,000 freedollars."
+
+"How much is that?" James asked.
+
+"Enough for one of the key fragments," Lucky said. "Those are the expensive parts of the key. We could probably find the rest on our own---"
+
+"That's it!" Violet said.
+
+They all looked at her.
+
+"We know a lot more about this world, right? So we can take on way higher-level Surface dungeons for the stuff that you can't mine. All we need to do is not sleep too close to an outpost."
+
+"Makes sense to me," James said.
+
+They all looked at Lucky.
+
+"I can't think of any clear way they could nurck us over doing that," Lucky said. "Which doesn't mean there isn't, but it's better than nothing."
+
+"When you've been in this place for as long as I have, 'better than nothing' sounds pretty good," Ralph said.
+
+Nods followed. "All in favor?" Violet asked.
+
+They all raised their hands.
+
+"Let's start by going back to Northwood," Stella said. "I still have to withdraw everything, and at least tell my boss I'm leaving."
