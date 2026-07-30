@@ -7,11 +7,11 @@ I have a bunch of ideas for it but not much written. I don't have a blurb. I don
 People you should know:
 
 James Algol: Our hero, an ordinary Worker Transmitted to another world.\
-Stella Cobol: James's forbidden Thinker girlfriend who, last he heard, was also going to be transmitted.\
+Stella Cobol: James's forbidden Thinker fiancée, who was Transmitted with him. Secretly a Christian, though this is never officially stated. \
 Tim Ruby: A happy Holdsman in the Blue Sunrise Hold.\
 Ralph ML: A big Worker man who leads the party of Wayfarers that James just joined.\
 Violet Haskel: A thoughtful Thinker woman in Ralph's party.\
-Fred Python: A tall Worker with Ralph's party.\
+Fred Python: A tall Worker with Ralph's party, who has since died. \
 Lucky (Athena Perl): A Perfect who has been Transmitted, secretly posing as an Unwanted so horrible things don't happen to her. She knows a lot about the Tower of Worlds.
 
 The story so far:
@@ -91,4 +91,13 @@ Chapter 32: On the trip, Lucky tells the others about the true namse of the stat
 Chapter 33: They arrive at Northwood City, and discuss what to do. The rest party wants to keep looking for jobs to pay for much better gear, but James wants to look for Stella. While musing about his next steps, he shows up at a factory's open house and sees the many machines there, following rules which do not exist on Earth. Passing by the workshop, James spots Stella herself.
 
 Chapter 34: It _is_ Stella! They go home to Stella's apartment, where she reveals she is saving money for a future house for them to live together in. James proposes, and they head to say goodbye to the rest of his party. But Lucky takes them both aside immediately and warns them that they are in grave danger.
+
+Chapter 35: They flee the city, Stella trying but failing to get money from the bank since **RETCON ALERT** they run out of time and there's a crowd. James ends up bluffing about being part of a secret cult to get out.
+
+Chapter 36: Far from the city, Lucky reveals herself to Stella and tells them of the mysteries of the Oru: a very human alien race that created the Tower of Worlds for some unknown reason. Although the Oru seem to have destroyed themselves in some kind of colossal disaster, a human ship discovered the remains of a satellite and brought it back. The descendants of this ship were the first Perfect, splicing Oru genes into themselves and others to recreate the Oru castes that could activate features on the satellite.
+
+_Why_ the Oru created the Tower of Worlds is still a mystery. Theory A proponents hold that it was a kind of elaborate live-action MMORPG. Theory B proponents hold that it was a kind of religious ritual based on the Oru concept of the afterlife, as the "scrolls" appear to be sections from Oru scriptures. Or it's possible that whatever the Oru wanted out of the Tower of Worlds, it had no correspondence to Earth culture.
+
+Chapter 37: Lucky continues by warning the Oru had a concept of the living interfering with the dead: you could pay to have the dead cursed or blessed. And the same is true of the human Perfects: they can pay money to help or hinder the Transmitted. Lucky fears that the Perfects would send Titans to destroy whatever city they stay in, as three of the people they hate the most are together. Their only option is to climb to the fourth world, where the cameras can't go and there is no apparent way to interfere with the Transmitted. The party all agrees to go.
+
 
