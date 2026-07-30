@@ -12,7 +12,7 @@ Lucky took out one of those 'nurcking white bowls' from her inventory, dropped a
 
 "How do you access magic afterwards?" Violet asked.
 
-"_That's_ pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her left pinky, then tapped a button. Then she pointed at a tree stump. It sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way, but it's slow and hard to use in battle.
+"_That's_ pretty simple," Lucky said, and opened up her magic screen. She tapped on a bar with her finger, then tapped a button. Then she pointed at a tree stump. It sprang to life and within a few seconds, had regrown into a new tree in a haze of blue light. "That's the simple way, but it's slow and hard to use in battle.
 
 "There's a faster way. If you chant the first few words of the scroll, with correct pitch and intonation, you can use it without the magic screen. Once you have them memorized, it's a lot quicker to use magic that way. Just be careful you don't use it too often, or you'll max out your magic bar and bad stuff happens."
 
@@ -40,7 +40,7 @@ James wanted to argue, but he realized Lucky had every reason to not trust them.
 
 "More times than I can remember or count."
 
-The camp fell quiet. "Lucky, is this a day when we can learn spells?" Violet asked.
+The camp fell quiet. "Lucky, can we all learn spells today?" Violet asked.
 
 "Yeah, the blue stars are shining. Why?"
 
@@ -82,7 +82,7 @@ Between them they had one more 'sanctuary', which Ralph got, one more temporary 
 
 They all looked at him. "Lucky would know all the true details," Ralph said. "But they're big, huge kaiju-sized monsters that can attack cities. They drop really, _REALLY_ high end materials if they're killed."
 
-"We were refining some Titan drops a few weeks ago," Stella said. "The customer wanted a bunch of armor and a few portions of a Tower key."
+"We were refining some Titan drops a week ago," Stella said. "The customer wanted a bunch of armor and a few Tower key fragments."
 
 James held his head. "Let me guess. To get into one of those Towers up to the next world, you need to kill a Titan for the key."
 
@@ -128,7 +128,7 @@ Stella looked distressed by all this. "Slaver or not, I don't like killing peopl
 
 They all looked at her.
 
-"We know a lot more about this world, right? So we can take on way higher-level Surface dungeons for the stuff that you can't mine. All we need to do is not sleep too close to an outpost."
+"We know a lot more about this world, right? We even have spells, unlike the average Transmitted. So we can take on way higher-level Surface dungeons for the stuff that you can't mine. All we need to do is not sleep too close to an outpost."
 
 "Makes sense to me," James said.
 
@@ -143,3 +143,5 @@ Nods followed. "All in favor?" Violet asked.
 They all raised their hands.
 
 "Let's start by going back to Northwood," Stella said. "I still have to withdraw everything, and at least tell my boss I'm leaving."
+
+They stood up and headed on their way. James felt better, now that they had a plan. The only problem was, the Perfects knew it, too.

@@ -10,7 +10,7 @@ James was baffled for a moment, before he remembered. "We all survived, and that
 
 The guards laughed and let them in.
 
-Despite their conversation last night, Northwood City seemed the same as ever. James almost wanted to shout in random people's ears that they were part Oru, or how to learn spells, but he knew that without Lucky's proof, no one would believe him. And he didn't know why Lucky hadn't told everyone else---no, it had been because she had suffered so much. And telling others would probably hurt Lucky, too.
+Despite their conversation last night, Northwood City seemed the same as ever. James almost wanted to shout in random people's ears that they were all part Oru, or how to learn spells, but he knew that without Lucky's proof, no one would believe him. And he didn't know why Lucky hadn't told everyone else---no, it had been because she had suffered so much. And telling others would probably hurt Lucky, too.
 
 He glanced over her, to see her unsettled with the sort of stress that never ended. If he could just get them all to the fourth world, then even Lucky could rest. But at any moment, the Perfects could try to destroy them.
 
@@ -90,9 +90,9 @@ James didn't know how to answer that.
 
 * * *
 
-The caravan carried bulk raw material from Ironspire, a mining outpost in the no-mans-land between Slaver and Free cities, and also brought food and other supplies back. Because it was in that no-mans-land, mercenary contracts were insanely lucrative, as well as willing to take anyone.
+The caravan carried bulk raw material from Ironspire, a mining outpost in the no man's land between Slaver and Free cities, and also brought food and other supplies back. Because it was in that no man's land, mercenary contracts were insanely lucrative, as well as willing to take anyone.
 
-This did not mean equally paid, however. James noted many of different levels of gear hopping on and off the giant wheeled machines. The quartermaster looked them over and said "Fifty freedollars a day for each of you."
+This did not mean equally paid, however. James noted many mercenaries different levels of gear hopping on and off the giant tracked machines. The quartermaster looked them over and said "Fifty freedollars a day for each of you."
 
 "One hundred," Lucky said.
 
@@ -126,7 +126,7 @@ Stella was meanwhile explaining to Lucky about the vehicles, who listened in gen
 
 "Do tanks exist, then?" James asked.
 
-"Landships, yeah. But they're _slow._ We were working on plates for their armor a few weeks ago."
+"Landships, yeah. But they're _slow._ We were working on plates for their armor two months ago."
 
 "The Transmitted could worldclimb with far more ease if it wasn't for the War of Indenture," Lucky muttered.
 
@@ -134,7 +134,7 @@ And all the more ease for the Perfects to nurck them over as long as it continue
 
 * * *
 
-"Fast" was relative. When the caravan finally left, the column of machines traveled at slightly faster than a walk---enough to be uncomfortable to walk, as every non-merchant did, but not fast enough to really make much time. James assumed the point was the carrying capacity: even with what seemed to be enough food and other supplies to last for weeks or even months, the machines were only partially full.
+"Fast" was relative. When the caravan finally left, the column of machines traveled at slightly faster than the ordinary human pace---enough to be uncomfortable to walk, as every non-merchant did, but not fast enough to really make much time. James assumed the point was the carrying capacity: even with what seemed to be enough food and other supplies to last for weeks or even months, the machines were only partially full.
 
 They also carried loads of wood to start the fires, four large bonfires to each side. There was not remotely enough for each of the twenty or so parties with them to share the fires, so the lower-rank ones, like James's, stayed to the side.
 
@@ -142,6 +142,6 @@ The fires were neither from incense logs, nor did they have Lucky's sanctuary sp
 
 Lucky shook her head. "Wouldn't be effective in a group this size, and we can't let others know."
 
-"I've been wondering, Lucky," Ralph said. "Why we shouldn't try to teach the Free Cities how to use---"
+"I've been wondering, Lucky," Ralph said. "Why shouldn't we try to teach the Free Cities how to use---"
 
 At that moment an alarm blared.
