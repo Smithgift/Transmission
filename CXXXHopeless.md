@@ -80,7 +80,7 @@ They met in Lucky's new room, which was as fancy as a band of survivors on the R
 
 "James, Stella," Lucky pleaded. "We've been struggling for way too long. We all need to rest. You two need to have your honeymoon. I want to be Athena Perl for a while and not Lucky the Unwanted. We can always talk about leaving this later."
 
-James thought about objecting, but it was true. He and Stella could use plenty of _quality_ time with each other. And it didn't sound as if anything bad would happen while they stayed here.
+James thought about objecting, but it was true. He and Stella could use plenty of time with each other. And it didn't sound as if anything bad would happen while they stayed here.
 
 "James, what if we... just stopped?" Stella asked. "Stayed here?"
 
@@ -94,7 +94,7 @@ That was true. "But... what if we never continue?" James asked.
 
 "James, we _won't_ stay here forever," Stella said. "Something will eventually happen. More Transmitted will arrive. Some will die. Eventually the balance of power will shift, or new leaders will arise, or maybe something happens to the Supreme Council on Earth and they send a new expedition after all."
 
-Everything Stella said made complete sense. In fact, why _should_ he argue? He was used to struggling to keep climbing, but why not take a break? At the very least, finish his honeymoon with Stella. He wanted to make up for lost time.
+Everything Stella said made complete sense. In fact, why _should_ he argue? He was used to struggling to keep climbing, but why not take a break? At the very least, finish his honeymoon with Stella.
 
 "OK," James said. "We'll stay."
 
