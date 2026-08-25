@@ -22,7 +22,7 @@ No, they couldn't. Even they had limits, given by the Oru. But were the Oru also
 
 "I want my nurcking money!" shouted a protester.
 
-James tapped one of the nearby ones. "What's going on?"
+James tapped one of the nearby ones on the shoulder. "What's going on?"
 
 "The bank had a run last night," the close protester said. "They said the manager fled with the money last night, and they ran out of the rest."
 
@@ -122,7 +122,7 @@ Stella was meanwhile explaining to Lucky about the vehicles, who listened in gen
 
 "Why can't they just stop and fire?" Violet asked before James could.
 
-"Again, power," Stella said. "The only efficient source they can carry with them are whiterock generators, and maybe they'd get a shot or two off if they had big enough capacitors. Nothing enough to stop a concerted attack on foot."
+"Again, power," Stella said. "The only efficient source they can carry with them are whiterock generators, and maybe they'd get a shot or two off if they had big enough capacitors. Nothing enough to stop a concerted attack on foot. That, and if they did stop, they can't run."
 
 "Do tanks exist, then?" James asked.
 

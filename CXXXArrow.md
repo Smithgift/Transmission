@@ -48,7 +48,7 @@ The arrow appeared several times more on their trip, sometimes pointing off to t
 
 Who could possibly be contacting them? Why not earlier? Or was this all an elaborate scheme, as Lucky feared?
 
-They helped her over one last dune, and James drew his weapon: a fortress, just like the other one. Had they been tricked?
+They helped her over one last dune, and James drew his weapon at the sight: a fortress, just like the other one. Had they been tricked?
 
 A symbol glowed over the fortress. "Home?" Stella and Lucky said simultaneously.
 
@@ -74,7 +74,7 @@ James had no words, but followed the strange people back to their fortress.
 
 * * *
 
-The inside looked that mix of old and brand-new machinery that implied the humans had been here for a time long, but also had resources enough to maintain everything. Or at least James was absolutely convinced they were humans, even if they seemed obsessed with Oru culture. Banners written in Oru hung from the walls.
+The inside looked that mix of old and brand-new machinery that implied the humans had been here for a long time, but also had resources enough to maintain everything. Or at least James was absolutely convinced they were humans, even if they seemed obsessed with Oru culture. Banners with Oru writings hung from the walls.
 
 One of the men with them belowed "They're here! They finally came!" Instantly every human in the place dropped his task and rushed to see them.
 

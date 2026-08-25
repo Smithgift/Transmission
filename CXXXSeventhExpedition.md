@@ -40,7 +40,3 @@ Stella embraced James and kissed him hard. "I've been waiting for this for far t
 "We _finally_ have our chance," she said with a gleam in her eye. "And I don't plan on waiting a second longer."
 
 In response, James kissed her back.
-
-
-
-

@@ -64,13 +64,13 @@ James felt uncertain.
 
 * * *
 
-They met in Lucky's new room, which was fancy as a band of survivors on the Ruins could get, James mused.
+They met in Lucky's new room, which was as fancy as a band of survivors on the Ruins could get, James mused.
 
 "I don't know if the situation is actually as bad as they say," Lucky said. "I think decades of futile struggle have made them allergic to trying again. I know I broke a few times down in the Underneath. But giving up would have been worse."
 
 "Do we know how big the other factions are?" James asked.
 
-"James, we shouldn't fight them."
+"James, we shouldn't fight them," Sella said.
 
 "Each is about twice our size," Lucky said. "And no, I don't want to provoke a war with them, either."
 

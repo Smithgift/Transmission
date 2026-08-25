@@ -12,7 +12,7 @@ And then the forest was silent, once again.
 
 "Please tell me we actually killed Slavers," James pleaded.
 
-"Yes. But we'll find out for sure in a moment," Lucky said, as she rummaged through the loot. "The 'we're a town patrol, just trust us', is one of the oldest tricks in the books. Second only to the helpless young woman separated from her party and the mysterious abandoned camp."
+"We did," Lucky said, as she rummaged through the loot. "They had military forks, no insignia, and didn't say what city they came from. The 'we're a town patrol, just trust us', is one of the oldest tricks in the books. Second only to the helpless young woman separated from her party and the mysterious abandoned camp."
 
 James didn't argue that that meant the patrol trick was third, not second, as he was still pretty amped up from the fight. "At least we have their gear," he said, admiring the loot piles.
 
@@ -34,7 +34,7 @@ They crowded around it. James didn't know how it possibly could have been create
 
 They didn't try to bury the "remains" of the Slavers, or even try to acknowledge that they had killed anyone. Off they went, following the map. James wondered if the Surface was so treacherous that every party ambushed before they were ambushed themselves, but at least the rest of his party seemed to know what to do in these situations.
 
-He had trouble sleeping that night, though. Even if they had been Slayers, they had killed other people and sent them back to the death loop of the Underneath. At least the smell of Lucky's special logs...
+He had trouble sleeping that night, though. Even if they had been Slavers, they had killed other people and sent them back to the death loop of the Underneath. At least the smell of Lucky's special logs...
 
 "Monsters!" Violet shouted. James reached for his spear and had a moment to react before the creatures were upon them. Strange horned beasts and misshapen ants and---he had no time to think, only to stab and fight, and---
 
