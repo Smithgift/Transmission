@@ -22,7 +22,7 @@ Well, it was worth seeing, at least. He didn't have much else to do. He wasn't g
 
 * * *
 
-The outside of the auction house was one of the many fortified yet non-descript buildings towards the center of the Hold. In case of a last stand for the Hold, even confusing an attacking Trog Tribe or rival Hold increased the odds of survival just a little. Without knowing which buildings were irrelevant and which hid weapons caches, the defenders had a small advantage.
+The outside of the auction house was one of the many fortified yet non-descript buildings towards the center of the Hold. In case of a last stand for the Hold, even briefly confusing an attacking Trog Tribe or rival Hold increased the odds of survival just a little. Without knowing which buildings were irrelevant and which hid weapons caches, the defenders had a small advantage.
 
 The disadvantage, James knew, was that any new citizen had no idea which buildings were which until you learned the layout. He had mentally dismissed this particular structure, large though it was.
 

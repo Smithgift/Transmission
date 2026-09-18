@@ -1,6 +1,18 @@
 ## Deaths
 
-Dying got old fast. James's fourth, fifth, and sixth lives passed in a blur. Then he lost count. The moment he seemed to make any progress, a monster would almost certainly spawn and kill him. Crabs seemed the regular bane of his existence, although the large snakes and those giant ugly humanoids---he had since dubbed them trolls---bagged him many times.
+He tried to get up, but the humanoid slammed its club into him and he died instantly.
+
+Back to the void... and then...
+
+Back to the cave. He had a massive headache, and felt strangely alive, as if newly born.
+
+Nurck. Nurck this place and _especially_ those giant humanoids.
+
+He heard skittering, but had only a moment to move before the crabs got him.
+
+* * *
+
+Dying got old fast. James's fifth, sixth, and seventh lives passed in a blur. Then he lost count. The moment he seemed to make any progress, a monster would almost certainly spawn and kill him. Crabs seemed the regular bane of his existence, although the large snakes and those giant ugly humanoids---he had since dubbed them trolls---bagged him many times.
 
 No matter how often he respawned, he never saw any sign of human habitation. Not that he lived long enough to ever explore for more than an hour or two before he was killed again.
 
@@ -20,9 +32,9 @@ But Stella wouldn't want him to think that way. Not when she always had hope.
 
 * * *
 
-They had snuck out from the workshop, officially to discuss the working of machines in private. James didn't know if the others would narc on him, because if they did, he and Stella would be Transmitted without out question.
+They had snuck out from the workshop, officially to discuss the working of machines in private. James didn't know if the others would narc on him, because if they did, he and Stella would be Transmitted without question.
 
-But when they were together, it didn't matter. He just wanted to be with him. They sat on the rough rock floor and kissed. "James," Stella said. "I'm going to be reassigned, but I have an idea."
+But when they were together, it didn't matter. He just wanted to be with her. They sat on the rough rock floor and kissed. "James," Stella said. "I'm going to be reassigned, but I have an idea."
 
 James felt a pit in his stomach. He knew it couldn't last, especially when it was forbbiden, but... "Yeah?"
 
@@ -68,9 +80,9 @@ He picked up his "knife" and took a random tunnel.
 
 * * *
 
-James had found that in his many, many deaths, the difference between the poisonous and edible plants. The blue bulbs were always poisonous, but the yellow ones, much rarer, were perfectly fine to eat. 
+James had found that in his many, many deaths, the difference between the poisonous and edible plants. The blue bulbs were always poisonous, but the yellow ones atop the stalks, much rarer, were perfectly fine to eat. 
 
-Usually about an hour or two into a life, he found himself hungry, especially if he had a brush with a weaker monster. But that life, he found a yellow bulb and ate it. They tasted literally like cardboard, but they filled his stomach pretty quickly. They also seemed to give a little experience. Most of all, they left strand of fiber behind, which had always stowed in his inventory.
+Usually about an hour or two into a life, he found himself hungry, especially if he had a brush with a weaker monster. But that life, he found a yellow bulb and ate it. They tasted literally like cardboard, but they filled his stomach pretty quickly. They also seemed to give a little experience. Most of all, they left strand of fibers behind, which had always stowed in his inventory.
 
 James knew he had to be missing something. Was there some way of using magic or inventing technology to help him survive? Or did the system simply kill people over and over again until they learned?
 

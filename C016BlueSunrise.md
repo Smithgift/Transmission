@@ -46,7 +46,7 @@ James thought about it. He _could_ refuse, but even with his gear and some exper
 
 "You sure like your... music..." He trailed off at the sight before him.
 
-James had been expecting more of a small fortress with a garden. What he saw were massive farms stretching across almost the entire cave floor, with fruit of every color growing in field after field. Huts were stationed everywhere, each with additional fortification, while in the center of the Hold was another defensive structure.
+James had been expecting more of a small fortress with a garden. What he saw were massive farms stretching across almost the entire cave floor, with fruit of every color growing in field after field. Firepits stood at intersection, the flames burning. Huts were stationed everywhere, each with additional fortification, while in the center of the Hold was another defensive structure.
 
 If the Holds were afraid of a Trog attack, this Hold at least would have needed to fear nothing from the Dragon Tribe, for they had practically their own world down here. Maybe a concerted effort from several large Trog Tribes.
 

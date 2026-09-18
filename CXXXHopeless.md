@@ -4,7 +4,7 @@ It was sometime around lunch the next day that they decided they really needed t
 
 More than pleasure, they had shared every bit of themselves with each other. And James knew, no matter what happened, no matter even if he was sent back to the Underneath and killed over and over again, he would _never_ stop trying to find Stella again.
 
-Stella, too, leaned into him more. "Told you things would change. We just needed to wait."
+Stella, too, leaned into him more. "Told you things could change. We just needed to wait."
 
 "It was well worth it," James said, and realized it was true.
 
@@ -12,7 +12,7 @@ At the mess hall, James found Lucky seated with the other Perfects at a central 
 
 "Yeah?" James asked.
 
-But it was the lead Perfect who spoke. "We didn't introduce ourselves. I'm Odin C, the leader of the Seventh Expedition," he said, offering a hand.. He didn't seem any changed from the previous day, or at least he hid the crushing of his hopes well. "Athena has been telling us of your adventures."
+But it was the lead Perfect who spoke. "We didn't introduce ourselves. I'm Odin C, the leader of the Seventh Expedition," he said, offering a hand. He didn't seem any changed from the previous day, or at least he hid the crushing of his hopes well. "Athena has been telling us of your adventures."
 
 "James Algol," James said, and shook his hand.
 

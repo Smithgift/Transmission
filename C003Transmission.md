@@ -8,7 +8,7 @@ James didn't like his boss, so he felt fine about sending him a detailed list of
 
 For his friends he just sent out a message in group chat. Two offered condolences, most kept quiet, and one asked him about his stuff. He told Mom to give it to the two that actually cared, if it wasn't valuable enough to sell.
 
-He didn't have any other social circles, and the groups he lurked in wouldn't care. His account was already shared with Mom, since they had to work together financially. His books would return to the library automatically, but he decided to be a good citizen and return them immediately. He wasn't going to finish them anyway.
+He didn't have any other social circles, and the groups he lurked in wouldn't care. His credit account was already shared with Mom, since they had to work together financially. His books would return to the library automatically, but he decided to be a good citizen and return them immediately. He wasn't going to finish them anyway.
 
 And then what?
 
@@ -18,7 +18,7 @@ He could binge watch his favorite shows, but he didn't want to spend his time so
 
 There was still a remote chance that he could be released if he got to the top world. Remote, but not non-existent. Or, if he met up with Stella in the Destination...
 
-But James knew the Destination had to be huge. Or at least, he realized, he thought he knew. The Perfects had Transmitted such a huge number of people that if they were all stuffed into a small world, they'd run out of room. But he didn't know. Maybe there were giant writhing piles of people, all clawing their way to get out.
+But James knew the first world had to be huge. The Perfects had Transmitted such an enormous number of people that if they were all stuffed into a small world, they'd run out of room. But he didn't know. Maybe there were giant writhing piles of people, all clawing their way to get out.
 
 The thought disturbed him, and he couldn't get it out of his head. Then Mom knocked on his bedroom door.
 
@@ -48,9 +48,9 @@ He stood near the inner doors and waited. The next time they opened, they took h
 
 * * *
 
-They had him strip, took everything, and washed him down with a spray of water from the walls. Another room dried him with heat. After getting a gown, they brought him to a doctor, who looked over him without sympathy until she found a scratch on his arm.
+They had him strip, took everything, and washed him down with a spray of water from the walls. Another room dried him with heat. After getting a gown, they brought him to a Healer, who looked over him without sympathy until she found a scratch on his arm.
 
-"When did this happen?" she grunted.
+"When did this happen?" the woman with green hair grunted.
 
 "Yesterday, when I came back from the trial. I---"
 

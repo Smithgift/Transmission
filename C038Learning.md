@@ -144,4 +144,6 @@ They all raised their hands.
 
 "Let's start by going back to Northwood," Stella said. "I still have to withdraw everything, and at least tell my boss I'm leaving."
 
-They stood up and headed on their way. James felt better, now that they had a plan. The only problem was, the Perfects knew it, too.
+They stood up and headed on their way. James felt better, now that they had a plan.
+
+The only problem was, the Perfects knew it, too.

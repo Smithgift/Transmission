@@ -10,7 +10,7 @@ The next morning, on the way back, Fred asked "Are you absolutely sure this is t
 
 "It is," Lucky said. But even she seemed more subdued than normal.
 
-The gates to the Labyrinth stood motionless, as if unbothered by gawking humans. James cleared his throat. "Last time I was in there, we fought a bunch of scorpions."
+The outer gates stood motionless, as if unbothered by gawking humans. James cleared his throat. "Last time I was in there, we fought a bunch of scorpions."
 
 "Should still be scorpions, then," Ralph said. "Boss doesn't change. The maze does, though."
 

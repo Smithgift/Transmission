@@ -1,6 +1,6 @@
 ## Survivors
 
-The door slammed shut.
+The gates slammed shut.
 
 Behind him.
 
@@ -30,11 +30,11 @@ Thankfully, James hadn't been so injured he fell unconscious, though that would 
 
 "Yes, I realize that," Wanda said. "Could you help me next?"
 
-Wanda had been nearly clawed to death on top of luckily not being instantly killed by poison. James had to practically undress her entirely to treat her numerous glowing red wounds. He was glad that, whatever this place was, it had neither bodily fluids or gore.
+Wanda had been nearly clawed to death on top of luckily not being instantly killed by poison. James had to practically undress her entirely to treat her numerous glowing red wounds. She said it didn't matter, but he tried not look. He was glad that, whatever this place was, it had neither blood nor gore.
 
-At last they were dressed, re-armored, and sitting around a fire in the now empty camp. It felt so eerie, as if all the Trogs had been kidnapped in the blink of an eye. 
+At last they were dressed, re-armored, and sitting around a fire in the now empty camp. It felt so eerie, as if all the Trogs had been kidnapped in the blink of an eye.
 
-The outer doors had not budged, as if satisfied it had made its point about arrogant humans.
+The outer gates had not budged, as if satisfied they had made their point about arrogant humans.
 
 "Now what?" James asked.
 
@@ -68,7 +68,7 @@ But Stella didn't believe in luck. James had never gotten a straight answer abou
 
 "What got a nice young man like you stuck down here?" Wanda interrupted his thoughts.
 
-James considered snapping back. But they had both seen some serious dung over the last few watches. "I loved a Thinker girl. We were meeting in secret, and a Perfect found out and wanted her. I slapped the nurck out of him, and we both got Transmitted." Though, James realized, he didn't _know_ Stella was Transmitted.
+James considered snapping back. But they had both seen some serious glack over the last few watches. "I loved a Thinker girl. We were meeting in secret, and a Perfect found out and wanted her. I slapped the nurck out of him, and we both got Transmitted." Though, James realized, he didn't _know_ Stella was Transmitted.
 
 The alternative was too grim to think about, ironically. "I suppose that's like me and---Contact!" Wanda cut herself off.
 

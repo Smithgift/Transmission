@@ -4,7 +4,9 @@ James stayed awake that night, thinking.
 
 He could find another Trog Tribe. That was the simplest. Chances were they'd want any warm body, much like the Dragons. But he knew it was only going to be a repeat of the previous situation. Unless he found a Tribe both elite and wanting to worldclimb, he was no better off than in the Hold.
 
-That left Wayfarers. He didn't know how he might persuade them to take on someone who was still relatively new. He could show them his stats so they could see, but without gear, he'd be a fifth wheel until they either paid for more gear or he found it in chests.
+And they needed to arrive within the week, which was unlikely.
+
+That left Wayfarers. He didn't know how he might persuade them to take on someone who was still relatively new. He could show them his stats so they could see, but without gear, he'd be a fifth---well, sixth---wheel until they either paid for more gear or he found it in chests.
 
 But there were Wayfarers constantly coming and going. They brought useful materials and bought high-end equipment, so most Holds welcomed them.
 

@@ -63,7 +63,7 @@ James turned away. Maybe romance was too much to think about, considering he had
 
 He whirled around. _"Tim Ruby?"_
 
-There he was, the pudgy young Worker and fellow mechanic who had gotten Transmitted for missing his quota too many times. He looked the kind of happy from perpetually contentment, which admittedly James had always known him to be. But now, dressed in the strange clothing they had down there, he seemed happily a Holdsman.
+There he was, the pudgy young Worker and fellow mechanic who had gotten Transmitted for missing his quota too many times. He looked the kind of happy that comes from being perpetually content, which admittedly James had always known him to be. But now, dressed in the strange clothing they had down there, he seemed happily a Holdsman.
 
 James slapped him on the back. "How's it been?"
 

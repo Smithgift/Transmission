@@ -1,6 +1,6 @@
 
 
-"Para paru!" one sang-shouted, and a fire spear nearly missed them.
+_"Para paru!"__ one sang-shouted, and a fire spear nearly missed them.
 
 
 

@@ -6,7 +6,7 @@ James initial urge was to charge down the doors into the inky blackness beyond, 
 
 James waited. One worldclimber had told him this was the worst part, since you could do nothing and there was always a chance of another monster attack while you were waiting for the scouts to be done. So you couldn't relax either.
 
-One, two, three, four in. He held his breath. One, two, three, four out. However their bodies worked in this place, breathing exercises still calmed him.
+One, two, three, four, in. He held his breath. One, two, three, four, out. However their bodies worked in this place, breathing exercises still calmed him.
 
 Though inwardly, he was terrified.
 
@@ -70,4 +70,4 @@ James didn't want to, but at that point he knew the battle was hopeless, and the
 
 He ran. He ran down the maze, trying to find the way out. _Please,_ he prayed, not knowing to whom. _Please let me---_
 
-He saw the doors slowly swing closed. With every last bit of strength he had, he ran and leapt for the door---
+He saw the gates slowly swing closed. With every last bit of strength he had, he ran and leapt for the opening---

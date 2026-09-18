@@ -4,7 +4,7 @@ He stepped out into the camp. Was this going to be his new home? Better get used
 
 "Hey," a Trog man said, coming up to him. "The clothing here is weird. Let me help you put in on."
 
-"Uh, OK?" James said. But a few minutes later, he wasn't arguing. The clothing they had given him made no sense. The pants had one leg drastically shorter than the other, while the shirt was more like a strange tunic. Something between a cloak or a cape draped over his other shoulder than the short leg. Most important of all, he was told, were the headbands and armbands, that showed the red dragon of their tribe.
+"Uh, OK?" James said. But a few minutes later, he wasn't arguing. The clothing they had given him made no sense. The pants had one leg drastically shorter than the other, while the shirt was more like a strange tunic. Something between a cloak or a cape draped over his other shoulder than the short leg. Most important of all, he was told, were the bandanas and armbands, that showed the red dragon of their tribe.
 
 "Who designed these clothes?" James asked.
 
@@ -32,7 +32,7 @@ He did find Drake's party warming themselves by a fire. They opened up a space f
 
 "I've figured out the inventory screen, sort of," James said. "The rest I don't really understand."
 
-"Here," Kate said, and touched her nose. "The first is inventory, as you figured out." She touched her nose again. "The second is a weird clock astrology thing. We're not sure how it works, but you can stick an item in that little box and something may or may not happen."
+"Here," Kate said, and touched her nose. "The first is inventory, as you figured out." She touched her nose again. "The second is a weird astrology thing. We're not sure how it works, but you can stick an item in that little box and something may or may not happen."
 
 "How do you know?" James asked.
 
@@ -40,7 +40,7 @@ He did find Drake's party warming themselves by a fire. They opened up a space f
 
 "OK," James said. "What about the next screen?"
 
-Kate touched her nose. "We have no idea. No one's ever managed to figure this one out."
+Kate touched her nose to show the large empty box. "We have no idea. No one's ever managed to figure this one out."
 
 "I see," James said, feeling deflated.
 
@@ -82,9 +82,9 @@ James looked, puzzled, at a different set of trees. Kate's black tree was much s
 
 "It's not impossible," Kate said. "I mean, maybe some Perfect wanted to go on an adventure. He'd be a total idiot, though. I know what _I'd_ do to a Perfect if I had the chance." There was sheer venom in her voice.
 
-"The problem with Gus's theory," Drake started.
+"The problem with Gus's theory---" Drake started.
 
-"It's not a theory!" Gus protested.
+"---It's not a theory!" Gus protested.
 
 "The problem with Gus's _idea_ is that it makes no sense what actions grow or shrink your trees. Like, killing another human causes either to skyrocket, sometimes both, and there's no explanation why or how. And sometimes they just grow or shrink on their own!"
 
@@ -110,4 +110,4 @@ James lifted up his arm to see a strange mark on it, like a scrape that had neve
 
 "Why?" James asked. "Why are they so generous about _this_ of all things?"
 
-"Nork if I know," Drake said.
+"Nurckk if I know," Drake said.

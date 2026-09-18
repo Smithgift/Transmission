@@ -2,7 +2,7 @@
 
 James woke up with a massive headache, and for the briefest moment wondered if he was dreaming. But then he felt the hospital gown still on him, and knew he had been Transmitted.
 
-That, and the blue glow all around him. He lay in some kind of rough-walled cave, where biolumincent blue moss grew on the various surfaces or strange flowers showed white bulbs. The drip of distant water comforted him, and he felt strangely alive, as if newly born.
+That, and the blue glow all around him. He lay in some kind of rough-walled cave, where biolumincent blue moss grew on the various surfaces or strange flowers showed blue bulbs. The drip of distant water comforted him, and he felt strangely alive, as if newly born.
 
 James sat up, and held his forehead. The warm smoothness felt the same as it ever did. Definitely still alive. Wherever this place was.
 
@@ -30,11 +30,11 @@ James sat down on a rock and, suddenly, the emotions he had been holding back cr
 
 He might never see Stella again.
 
-He found himself crying, but nothing came out. No water touched his nose. He reached to wipe it, but brushing his nose suddenly a white page of text appeared before his eyes.
+He found himself crying. He reached to wipe his tears, but brushing his nose suddenly a translucent dark page of text appeared before his eyes.
 
 It just wasn't in English.
 
-In fact, as he stared at the symbols, none of them he even recognized. They seemed to be pictographs, but of what language, he had no clue.
+In fact, as he stared at the white symbols, none of them he even recognized. They seemed to be pictographs, but of what language, he had no clue.
 
 He leaned in and found it seemed attached to his right hand, as if some kind of hologram. Touching it with his left did nothing, and he couldn't even figure out how to close it.
 

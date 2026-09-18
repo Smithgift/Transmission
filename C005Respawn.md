@@ -18,7 +18,7 @@ Each of his right hand's fingers gave a different screen. None of them gave any 
 
 His pinky accessed a giant sixteen by sixteen grid of squares. He assumed this was some kind of inventory, though how to get anything in or out, he hadn't a clue.
 
-His ring finger accessed an stranger screen, like a series of symbols in eight colored spheres attached by lines, in a field of stars. He saw constellations, but he knew none of them. There was also a large grey square with no apparent purpose.
+His ring finger accessed an stranger screen, like a series of symbols in eight spheres attached by lines, in a field of stars. He saw constellations, but he knew none of them. There was also a large grey square with no apparent purpose.
 
 His middle finger showed a very large empty grey square, with what appeared to be buttons, but none of them did anything.
 
@@ -42,7 +42,7 @@ But another part of the screen lit up, showing a half-visible spear next to more
 
 Ah. This had to be some kind of crafting screen, right? He just didn't have anything else to craft. You needed some kind of stick to make a spear, right?
 
-He had a mission now. He took a tunnel at random and wandered down it. He kept an ear out for any sign of those awful crabs, but nothing. Not a sound but the trickle of water and echoes from his footsteps
+He had a mission now. He took a tunnel at random and wandered down it. He kept an ear out for any sign of those awful crabs, but nothing. Not a sound but the trickle of water and echoes from his footsteps.
 
 He picked up everything in sight, in the hopes that he could find whatever the nurck he needed to make a spear. The moss he could scrape off, but it wouldn't go into his inventory. The bulbs of the plants did go in.
 
@@ -64,4 +64,4 @@ The tree-screen showed little change, but the white tree had grown just a little
 
 James decided it was time to rest. He would just take a break here, until his arm finished healing. And it was healing fast. Knowing that as long as he survived---
 
-He heard a rumble, then a massive hairy humanoid creature bearing a club charged in from a tunnel. He tried to get up, but the humanoid slammed its club into him and he died instantly.
+He heard a rumble, then a massive humanoid covered in yellow fur charged in from a tunnel. It saw him, raised its club, and roared.

@@ -48,7 +48,7 @@ James stopped. Everything she was saying made sense. Did he still want to lash o
 
 "Nurck," Ralph said, shaking his head. "To be honest, if I didn't know you were Lucky, I'd have... probably left you to die."
 
-"I _am_ Lucky," she said. "Before this, I was Athena Perl. But people will listen to Lucky the Unwanted and they won't make her suffer, either."
+"I _am_ Lucky," she said. "Before this, I was Athena Perl. But people will listen to Lucky the Unwanted and they won't make her suffer, either. That's why Mother bribed a Watcher to sneak a bonnet into my Transmission cell."
 
 The campfire fell quiet.
 

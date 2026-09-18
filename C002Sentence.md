@@ -27,7 +27,7 @@ Tomorrow, then. He'd heard of people getting anywhere up to a month to sort out 
 
 What the nurck was the point of all this? he wondered. The Perfects were supposed to be exemplars of all that was good, but as far as he could tell they were the worst of the worst. So why did birth give them right to do anything?
 
-But there was no use thinking about it. It would cease mattering to him very soon, unless there were Perfects in the Other Worlds.
+But there was no use thinking about it. It would cease mattering to him very soon, unless there were Perfects in the Destination.
 
 He thought about trying to track down Stella, but he doubted he could. They lived in different districts, and only met because they had been assigned to the same project. She designed the machines, he put them together and fixed them. It had grown from there.
 
@@ -57,7 +57,7 @@ There were always a few crazies who tried to overthrow the system. But they neve
 
 But not for much longer, theoretically.
 
-He brought up the Troglopedia article on Transmission. The world that criminals and the very unwanted Unwanted were sent to was less one world and more several worlds, stacked in a tower. But how to climb them, no one in this world knew except the Perfects. After all, if you reached the top... you would be released.
+He brought up the Nyctopedia article on Transmission. The world that criminals and the very unwanted Unwanted were sent to was less one world and more several worlds, stacked in a tower. But how to climb them, no one in this world knew except the Perfects. After all, if you reached the top... you would be released.
 
 No one had ever managed it, according to the rumors that had been passed around. But if there had been, surely the Perfects would be celebrating, to prove that their strange system of reformation was effective as it was claimed.
 
@@ -127,7 +127,7 @@ James wrapped an arm around her. She wrapped an arm around him.
 
 "Do we want to..." James trailed off, unable to ask to cross that _particular_ line.
 
-She shook her head. "There's a secret I can't even tell you. But for the moment, we'll just be with each other."
+She shook her head. "There's a secret I can't tell even you. But for the moment, we'll just be with each other."
 
 "Even if there's never any more?"
 

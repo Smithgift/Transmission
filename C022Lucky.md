@@ -1,6 +1,6 @@
 ## Lucky
 
-Outside the gates, the usual tunnels and glowing moss of the Hold gave James a mixture of fear, deja vu, and oddly enough, comfort. They marched on as soon as they had their armor on, and James marveled at the amount of equipment the party had. Fred even had a Phoenix Sword. "Lucky found it," Fred said to James's admiring gaze.
+Outside the gates, the usual tunnels and glowing moss of the Hold gave James a mixture of fear, déjà vu, and oddly enough, comfort. They marched on as soon as they had their armor on, and James marveled at the amount of equipment the party had. Fred even had a Phoenix Sword. "Lucky found it," Fred said to James's admiring gaze.
 
 "Yes," Ralph said. "We don't talk about Lucky in public. She needs her privacy."
 
@@ -146,7 +146,7 @@ That night in a higher cavern, James and Ralph kept watch. Lucky got up, stretch
 
 "Lucky likes to be alone sometimes," Ralph said. "We leave her be. Just between us, something must have... you know, she doesn't like being touched, and she doesn't like being too close to people."
 
-James didn't answer. He knew all too well what might have happened to an Unwanted back on Earth. It was a shame, how they became that way: just something went wrong and they didn't have a hair color listed on the Scale.
+James didn't answer. He knew all too well what might have happened to an Unwanted back on Earth. It was a shame, how they became that way: just because their parents weren't the same shade on the Scale and their hair color not on it.
 
 But what difference did that make? They hadn't done anything at birth to deserve anything more or less.
 

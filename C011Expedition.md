@@ -26,7 +26,7 @@ James tapped his nose with his thumb. His white tree was slightly larger, but of
 
 * * *
 
-The smaller tunnels of the deeper caves in the Underneath made his heart jitter. He had not merely one weapon, but two, and was with a five-person party, three of whom were experienced warriors with powerful gear. This was standard protocol among Trogs to bloody new Trogs in real combat, while reducing the risk. So he knew he was about as safe as he could be in this world, and he had to get stronger to get to the second world, but he still worried.
+The smaller tunnels of the deeper caves in the Underneath made his heart jitter. He had not merely one weapon, but two, and was with a five-person party, three of whom were experied warriors (though not Salamanders) with powerful gear. This was standard protocol among Trogs to bloody new Trogs in real combat, while reducing the risk. So he knew he was about as safe as he could be in this world, and he had to get stronger to get to the second world, but he still worried.
 
 "Relax," Peter, their leader, a Worker, said to him. "This is life in the Underneath, unless you want to lay around in a Hold."
 
@@ -80,7 +80,7 @@ But as if in comfirmation, there wasn't another monster attack before they encou
 
 They formed the formation, a kind of V, with the ends of the legs facing outward. The point, as far as James could tell, was to protect against attacks from either direction. He wanted to turn his head and see, but he was better as a lookout than the front line.
 
-"Nork," Raoul muttered. "No trap."
+"Nurck," Raoul muttered. "No trap."
 
 "OK. Everyone face the door. Be prepared for something to go very wrong when we step inside. But we're going to try and rush the monster instead before that wrong thing happens. Ready? Three, two, one, GO!"
 
@@ -140,7 +140,7 @@ Boris looked over his inventory. "A scroll on your first trip? You must be one o
 
 He felt stung. "Only _ten?_" 
 
-"It's a common scroll, and not very useful. It has the same effect of eating a full meal. But it's popular among elite Wanderers, since you can carry a lot more scrolls than meals. So ten credits."
+"It's a common scroll, and not very useful. It has the same effect of eating a full meal. But it's popular among elite Wayfarers, since you can carry a lot more scrolls than meals. So ten credits."
 
 James was still disappointed, but he had to admit it wasn't like he could use the scroll, either. "Can I keep the other stuff?"
 

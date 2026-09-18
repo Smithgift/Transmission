@@ -52,7 +52,7 @@ All of their black *hamartia*-trees had grown significantly. "What did we do?" J
 
 "Bad in the eyes of the culture that made this place," Lucky said. "Not _bad_ bad."
 
-"We would have died, or far worse, if we hadn't ambushed them," Violet said.
+"We would have been lucky to merely die if we hadn't ambushed them," Violet said.
 
 "Check for wounds," Ralph said. "And I think we're all going to stay up tonight, until we find some way to fix our trees."
 

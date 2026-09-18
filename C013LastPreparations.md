@@ -1,6 +1,6 @@
 ## Last Preparations
 
-James could feel the nervous energy all over the Tribe as they marched closer and closer to the outer doors of the Labyrinth. No one would admit to being scared, but when some of the worldclimbers told them about how frightened they were the first or second time they assaulted a Labyrinth, the tension eased... a little.
+James could feel the nervous energy all over the Tribe as they marched closer and closer to the outer gates of the Labyrinth. No one would admit to being scared, but when some of the worldclimbers told them about how frightened they were the first or second time they assaulted a Labyrinth, the tension eased... a little.
 
 Drake and his party, meanwhile, seemed unmoved. James was disappointed that he still didn't qualify as a Salamander, but Trog parties were always five people anyway. And a bunch of Salamanders, some of whom were worldclimbers, didn't need a sixth wheel tagging along.
 
@@ -12,11 +12,11 @@ Drake and his party, meanwhile, seemed unmoved. James was disappointed that he s
 
 "It's a big maze," he said, to Gus's guffaw.
 
-"We stop outside a big set of doors," Kate said. "Then we use a key---they're one time use---to get inside. Scout parties search the Labyrinth first to find a route to the Guardian chamber, then we _all_ go in and follow them. Then we rush the Guardian and hope enough of us survive to kill it."
+"We stop outside the outer gates," Kate said. "Then we use a key---they're one time use---to get inside. Scout parties search the Labyrinth first to find a route to the Guardian chamber, then we _all_ go in and follow them. Then we rush the Guardian and hope enough of us survive to kill it."
 
 "You forgot about the time limit," Drake added.
 
-"Yeah. The outer doors shut after around two or three hours, and then if you're inside you have to fight or die."
+"Yeah. The outer gates shut after around two or three hours, and then if you're inside you have to fight or die."
 
 "So you actually can retreat?" James asked.
 
@@ -36,7 +36,7 @@ James felt uneasy at the thought. He didn't quite have friends down here---he ha
 
 * * *
 
-The colossal outer doors of the Labyrinth towered over the Dragon Trogdolyte Tribe, as if unamused by the humans about to dare to venture inside. James estimated they were somewhere around three stories high, and half that wide. Strange symbols covered them, but they were dull, as if unwilling to even acknowledge anything existed before them.
+The colossal twin doors of the outer gates of the Labyrinth towered over the Dragon Trogdolyte Tribe, as if unamused by the humans about to dare to venture inside. James estimated they were somewhere around three stories high, and half that wide. Strange symbols covered them, but they were dull, as if unwilling to even acknowledge anything existed before them.
 
 The Tribe Officers, a mix of Watchers and Workers, gave a speech to which James, try as he could, could not pay any attention. All he could think of was the Guardian, which stood between him and the Surface, and thus Stella.
 
@@ -54,7 +54,7 @@ When it was James's turn, there were already piles of discarded weapons and armo
 
 "Sometimes. The big deal is the machinery," the quartermaster said. "You can make things from other things up there. I saw a machine that spat out swords twice the quality of what we could make every minute."
 
-James felt weirdly comforted. He had had a lot of fun fixing machines growing up, and if he could just fix _more_ machines.
+James felt weirdly comforted. He had had a lot of fun fixing machines growing up, and if he could just fix _more_ machines...
 
 And Stella could design them, once she got up there, too.
 
@@ -82,4 +82,4 @@ At last the whole Tribe was assembled, everything else left behind in disorganiz
 
 "YES, SIR!" the Tribe shouted back.
 
-"Here we go!" he approached the door, and pulled a glowing orange key from his inventory. The key was recognizably a key, but ornate in a strange way, not like any other he'd seen. James only saw it for a moment, because the next the Chieftain had touched it to the door. The symbols shone to life, and moments later, with an immense grinding, the doors began to swing inward.
+"Here we go!" he approached the gates, and pulled a glowing orange key from his inventory. The key was recognizably a key, but ornate in a strange way, not like any other he'd seen. James only saw it for a moment, because the next the Chieftain had touched it to the gates. The symbols shone to life, and moments later, with an immense grinding, the gates began to swing inward.

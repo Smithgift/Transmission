@@ -50,7 +50,7 @@ They gathered around her.
 
 "The second stat is Gorilla, mislabeled Strength B, trained by enduring heavy exercise or injuries. It helps you _do_ heavy exercise or withstand injuries.
 
-"The third stat, mislabeled magic, is Crane, trained by doing magic, which both increases the power of magic and the amount you can do.
+"The third stat, mislabeled magic, is Crane, trained by doing magic or being hit by it, which both increases the power of magic and the amount you can do.
 
 "The fourth stat, mislabeled Speed, is an animal we're not sure about, but we believe it is some kind of fast-running hare or bird. We call it Runner It's increased by walking, especially running, and makes you move faster.
 

@@ -8,7 +8,7 @@ He had been so busy trying to survive that the next step hadn't really been in h
 
 He spotted Drake and the others forming up. James walked up to them. "Hey."
 
-"Hey," Drake said. "Listen, I don't have anything against you as a person, but you are a newt. We're Salamanders. We're heading to lower reaches of the Underneath, where the average monster could kill you in seconds. You need to head to basic training at the very least, and then find a low-level party."
+"Hey," Drake said. "Listen, I don't have anything against you as a person, but you are a newt. We're Salamanders." He pointed to the knot of his bandana, which was tied on the right. "We're heading to lower reaches of the Underneath, where the average monster could kill you in seconds. You need to head to basic training at the very least, and then find a low-level party."
 
 James had to admit to himself that everything Drake said made sense. He was the equivalent of a level one noob, even if he had no idea if anything resembled 'levels' in the system here. "No problem," James said. He gave a wave and headed off in search of basic training.
 
@@ -20,7 +20,7 @@ In one corner of the camp a kind of training arena had been built, where one baf
 
 "Again!"
 
-"You the other newt?" an Unwanted girl beside James asked quitely.
+"You the other new newt?" an Unwanted girl beside James asked quitely. James was surprised that she had the same bonnets they all did---she must have been Transmitted in it.
 
 "Yeah," James said. "James."
 
@@ -54,7 +54,7 @@ He got used to training. At mealtimes, he enjoyed the bluefruit stew, which than
 
 There was no real way to tell time except by how long it took to cook bluefruit, so time was divided into watches based around meals. After the third watch, before bed, anyone who had worked (or in James's case, trained) was allowed to rest or do whatever. Some played games with improvised pieces or just gabbed. James tried to learn.
 
-The Dragon Trog Tribe was gearing up for an assault on a Guardian and subsequent passage into the Surface. But when that time was ripe, no one knew but the Officers, who only gave limited details. They did not want to commit, apparently, though they had said it would come soon.
+The Dragon Trog Tribe was gearing up for an assault on a Labyrinth and subsequent passage into the Surface. But when that time was ripe, no one knew but the Officers, who only gave limited details. They did not want to commit, apparently, though they had said it would come soon.
 
 James also learned that the reason Trog Tribes rarely got into fights with each other was because the Underneath was simply too huge. In the rare times when two Tribes did arrive in the same area, they would try to come to some agreement of who would move. This could lead to significant drama, since moving, James soon found out, was not a small endeavor.
 
@@ -76,7 +76,7 @@ Still, James thought, he'd carried heavier stuff when working back on Earth. And
 
 "No. Why?"
 
-"I mean, we seem to have some kind of system, and we don't have bodily fluids, but aside from that I feel perfectly---"
+"I mean, we seem to have some kind of system, and we're missing some bodily fluids, but aside from that I feel perfectly---"
 
 James had only a moment to draw his short sword and hold it out as the troll charged from out of a side tunnel. Amanda wasn't so lucky. The troll battered her with its club as the other Trogs got together to stop the rest of the charge. James stabbed the one that broke through, stabbed and cut until it collapsed into fur and meat.
 

@@ -10,7 +10,7 @@
 
 "A what?" James asked.
 
-"An Oru arrow. You know, like the triangle at the end of a stick you draw to point at things. They used that shape."
+"An Oru arrow. You know, like the triangle at the end of a stick you draw to point at things. They used that shape instead."
 
 "So the Oru are... but I thought they're dead."
 

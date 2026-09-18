@@ -33,9 +33,11 @@ James had no idea what to say. For once he felt true pity for the Perfects---the
 
 "Of course, ma'am," he said, and closed the door behind him.
 
-Stella embraced James and kissed him hard. "I've been waiting for this for far too long." Then she looked up. "Please turn off your cameras for a bit."
+Stella embraced James and kissed him hard. "I've been waiting for this for far too long." Then she opened up her destiny screen and looked up. "Hey! Whoever's up there! If you're willing to turn off the cameras for a bit, and leave them off, send us a leaf."
 
-"Uh..." James started.
+A leaf grew.
+
+"Uh..." James started as Stella squeezed on to him.
 
 "We _finally_ have our chance," she said with a gleam in her eye. "And I don't plan on waiting a second longer."
 

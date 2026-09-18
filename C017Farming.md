@@ -14,7 +14,7 @@ He realized, over time, that the ever-present fear of being in the Underneath ha
 
 * * *
 
-A large percentage of the Hold's arable land was privately owned, although the Hold itself demanded a fifth of all produce. Attempts to run the farms collectively, as they had been on Earth, usually ended in disaster. And yet James realized that even if many people owned their own fields, things still weren't fair.
+A large percentage of the Hold's arable land was privately owned, although the Hold itself demanded a fifth of all produce. Attempts to run the farms collectively usually ended in disaster. And yet James realized that even if many people owned their own fields, things still weren't fair.
 
 James had officially become a Level 0 citizen, who could not own real estate of any kind. He had to work in others' fields, or the Hold-owned fields, for wages, not a share of the crops. And while he soon enjoyed the work, he still realized he was being paid a fraction of what the owners actually made.
 

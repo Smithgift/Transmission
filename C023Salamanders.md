@@ -10,7 +10,7 @@ For Lucky's part, she seemed to trust the rest of the party a little, and as far
 
 * * *
 
-One meal around a fire, James looked at his stats. Even if he was probably more elite than Drake's old party now, his Trickery was still too low to have qualified as a Salamander among the late Tribe. He still wore his bandana to the side as a Salamander, anyway. Didn't he deserve it?
+One meal around a fire, James looked at his stats. Even if he was probably more elite than Drake's old party now, his Trickery was still too low to have qualified as a Salamander among the late Tribe. He still wore his bandana to the right as a Salamander, anyway. Didn't he deserve it?
 
 > Strength A: 16+9\
 > Strength B: 16+0\
@@ -207,4 +207,4 @@ She shook her head. "I'm fine."
 
 But later that night, James could hear her soft crying. When he listened closely, he could hear her say just one thing.
 
-_"I want to get out."_
+_"I want to go home."_

@@ -64,7 +64,7 @@ James realized how little he knew about any of the systems. That 'experience' ba
 
 "What _is_ a Trog Tribe?"
 
-"We travel the Underneath in a large nomadic group, as opposed to the Holds, which stay in place, or the Wanderers, who travel from Hold to Hold in small groups. If you want to switch from one to another, you can. We're all in this together, you see."
+"We travel the Underneath in a large nomadic group, as opposed to the Holds, which stay in place, or the Wayfarers, who travel from Hold to Hold in small groups. If you want to switch from one to another, you can. We're all in this together, you see."
 
 James felt his whole body relax of a tension he didn't realize he had been carrying. He had expected a bunch of competing groups fighting each other for resources. But in fact it seemed that the groups didn't fight each other, or at least had some kind of truce. It wasn't every man for himself. It was every man for every man.
 

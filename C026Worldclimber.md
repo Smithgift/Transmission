@@ -40,7 +40,7 @@ She hit another dead end, and the another. On the fourth branch, they finally ca
 
 When James stepped out, he almost dropped Fred from shock.
 
-Above wasn't right, because there was no ceiling. The too-bright thing had to be the sun, or something very much like it, but it wasn't quite right either.  All around were real, leafy tree, not organized as in the hydroponics plants on Earth. Yet the trees weren't quite right either---their leaves weren't exactly right, he knew, although how he knew he didn't know. He felt both elated, and disturbed, and terrified.
+Above wasn't right, because there was no ceiling. The too-bright thing had to be the sun, or something very much like it, but it wasn't quite right either. All around were real, leafy tree, not organized as in the hydroponics plants on Earth. Yet the trees weren't quite right either---their leaves weren't exactly right, he knew, although how he knew he didn't know. He felt both elated, and disturbed, and terrified.
 
 "It's... it's enough," Fred said, his tense body from all the pain suddenly relaxing. "So this is what the Surface... is like. I saw it. I'll never see it again. It's OK. Sorry for doubting you, Lucky." And then he tossed away his Phoenix Sword, and disappeared.
 
