@@ -1,8 +1,6 @@
-I've gotten burned out on AWoGaF. I've been writing it since June 22, 2024, and I just don't have the energy to keep going. I had been in denial, but when I prayed in Adoration, I just felt God gently tell me I was burned out. So for the moment, here's a new project.
+For those of you just joining us, _Transmission_ is the story of James Algol, an ordinary Worker who is cruelly Transmitted to a mysterious Tower of Worlds. Climbing to the top means escape, and death means being sent back to the bottom of the tower. He is joined by Stella Cobol, his forbidden Thinker fiancée, Lucky, an exiled member of the ruling class of Perfects, Ralph, an old soldier, and Violet, another Thinker. On the second world, they face the alarming truth that the Tower of Worlds was built for unknown reasons by a mysterious race of aliens known as the Oru, whose system allows the Perfects of Earth to continue to torment them. Their only hope is to reach the fourth world... before the Perfects find a way to kill them.
 
-I don't know when I'll get back to AWoGaF, and I realize I left at an awkward time, but it is what it is. Until then, here's a different project.
-
-I have a bunch of ideas for it but not much written. I don't have a blurb. I don't even have a name yet. It _is_ a LitRPG, but beyond that, I don't know. Discovery!
+This is a LitRPG: that is, a world where RPG mechanics have ontological reality, such that people literally have stats and can level up (sort of.) Also note that aside from our heroes, no one knows about the Oru, the Perfect's ability to send monster, or has learned magic (actually, the system at work.) 
 
 People you should know:
 
@@ -12,7 +10,8 @@ Tim Ruby: A happy Holdsman in the Blue Sunrise Hold.\
 Ralph ML: A big Worker man who leads the party of Wayfarers that James just joined.\
 Violet Haskel: A thoughtful Thinker woman in Ralph's party.\
 Fred Python: A tall Worker with Ralph's party, who has since died. \
-Lucky (Athena Perl): A Perfect who has been Transmitted, secretly posing as an Unwanted so horrible things don't happen to her. She knows a lot about the Tower of Worlds.
+Lucky (Athena Perl): A Perfect who has been Transmitted, secretly posing as an Unwanted so horrible things don't happen to her. She knows a lot about the Tower of Worlds.\
+Vulkan Lisp: the dungpit Perfect who was betrothed to Athena, and also tried to force himself on Stella. A total creep.
 
 The story so far:
 
@@ -100,4 +99,10 @@ _Why_ the Oru created the Tower of Worlds is still a mystery. Theory A proponent
 
 Chapter 37: Lucky continues by warning the Oru had a concept of the living interfering with the dead: you could pay to have the dead cursed or blessed. And the same is true of the human Perfects: they can pay money to help or hinder the Transmitted. Lucky fears that the Perfects would send Titans to destroy whatever city they stay in, as three of the people they hate the most are together. Their only option is to climb to the fourth world, where the cameras can't go and there is no apparent way to interfere with the Transmitted. The party all agrees to go.
 
+Interlude 1: Vulkan Lisp, the Perfect responsible for our heroes misfortune, fumes that he was thwarted. He contacts his father, a member of the Supreme Council, to get far more credits to stop our heroes' ascent.
 
+Chapter 38: Lucky teaches the party the elaborate ritual for learning spells, that no one had managed to discover by chance. James and co get some spells of blue magic. They debate what to do, knowing the Perfects are watching their every move.
+
+The key, literally, to get to the next world involves slaying the three kaijū-sized Titans, impossible for a small party like themselves. But key fragments can be bought from those who did slay Titans, and they decide to use their superior knowledge of the Tower of Worlds to grind money.
+
+Chapter 39: Stella goes to withdraw her life savings to see that the bank has had a run. They end up on a caravan to Ironspire, a mining outpost. On the way, an alarm blares.
