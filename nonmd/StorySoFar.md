@@ -1,6 +1,6 @@
 For those of you just joining us, _Transmission_ is the story of James Algol, an ordinary Worker who is cruelly Transmitted to a mysterious Tower of Worlds. Climbing to the top means escape, and death means being sent back to the bottom of the tower. He is joined by Stella Cobol, his forbidden Thinker fiancée, Lucky, an exiled member of the ruling class of Perfects, Ralph, an old soldier, and Violet, another Thinker. On the second world, they face the alarming truth that the Tower of Worlds was built for unknown reasons by a mysterious race of aliens known as the Oru, whose system allows the Perfects of Earth to continue to torment them. Their only hope is to reach the fourth world... before the Perfects find a way to kill them.
 
-This is a LitRPG: that is, a world where RPG mechanics have ontological reality, such that people literally have stats and can level up (sort of.) Also note that aside from our heroes, no one knows about the Oru, the Perfect's ability to send monster, or has learned magic (actually, the system at work.) 
+This is a LitRPG: that is, a world where RPG mechanics have ontological reality, such that people literally have stats and can level up (sort of.) Also note that aside from our heroes, no one knows about the Oru, the Perfect's ability to send monsters, or has learned magic (actually, the system at work.) 
 
 People you should know:
 
