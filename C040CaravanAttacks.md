@@ -18,13 +18,13 @@ James's party looked at Lucky, and she nodded grimly at their thought: the Perfe
 
 * * *
 
-They did not get much sleep that night, not that they could. Everyone was talking about the battle, and a few parties had taken causalties. None of the machines were too badly damaged, aside from the one that had taken a direct hit. But it was still drivable.
+They did not get much sleep that night, not that they could. Everyone was talking about the battle, and a few parties had taken casualties. None of the machines were too badly damaged, aside from the one that had taken a direct hit. But it was still drivable.
 
 "Lucky," James whispered. "Is it safe to keep doing this? They're going to send more monsters."
 
 Lucky shook her head, then shrugged. "It's not _safe_ but we're low on options."
 
-"You saw how our weapons weren't effective," Ralph whispered. "We're still safer in a group this size with parties better equipped than ours, then trying our luck in the wilderness. Even with..."
+"You saw how our weapons weren't effective," Ralph whispered. "We're still safer in a group this size with parties better equipped than ours, then trying our luck in the wilderness. Even with magic..."
 
 "Yeah," Lucky said. "We don't have infinite blue scrolls to burn."
 
@@ -52,7 +52,7 @@ Lucky seemed disconsolate, and despite Stella's attempts to cheer her up, she te
 
 James didn't know if it would be worth telling Lucky it wasn't her fault---especially within earshot of the other mercenaries.
 
-Violet, on the other hand, had found a young man with the merchants. This Thinker had, in a mix of pride about his role in the caravan and an embarassingly earnest attempt to charm her, told her all sorts of things. The caravan had about four more nights before it reached Ironspire, and statistically (he assured her) the chances of another monster attack that large were minimal.
+Violet, on the other hand, had found a young man with the merchants. This Thinker had, in a mix of pride about his role in the caravan and an embarassingly earnest attempt to charm her, told her all sorts of things. The caravan had about three more nights before it reached Ironspire, and statistically (he assured her) the chances of another monster attack that large were minimal.
 
 * * *
 
@@ -154,9 +154,9 @@ James had figured sometimes Lucky might have been practicing magic in secret. Or
 
 The most dangerous part of the journey fell through a twisty high-walled canyon pass in the mountains, just before Ironspire itself. While it would not be impossible to simply climb over the hills, it would take days---in this wasteland where no food grew---and it would be impossible to bring the machines. The place would be perfect for an ambush, and James now knew the monsters, as skilled as the Slavers, could realize that.
 
-Of course, it didn't take very much skill to realize that, which is why the captain of the caravan guards had had a shouting match with the chief merchant so loud that everyone heard either it or the rumors. The understandably superstitious mercenaries didn't want the next monster attack to occur in such a bad location, while the merchants insisted that it was mere chance, and if they hurried up, they could make it out of the canyon shortly after nightfall. It would never have even been an argument, James gleaned, except that the panicked escapes of the vehicles each attack had perversely driven them ahead of schedule.
+Of course, it didn't take very much skill to realize that, which is why the captain of the caravan guards had had a shouting match with the chief merchant so loud that everyone heard either it or the rumors. The understandably superstitious mercenaries didn't want the next monster attack to occur in such a bad location, while the merchants insisted that the two attacks were mere chance, and if they hurried up, they could make it out of the canyon shortly after nightfall. It would never have even been an argument, James gleaned, except that the panicked escapes of the vehicles each attack had perversely driven them ahead of schedule.
 
-Profit won over patience, and off they went through the canyon. There was not quite enough room for the guards to walk on the side, so most of the caravan either walked in front of or behind the machines. James wondered why it seemed the lower ranked mercenaries, like themselves, ended up in the vangard, until he realized that if the machines were to accerate in haste, they'd risk being run over.
+Profit won over patience, and off they went through the canyon. There was not quite enough room for the guards to walk on the side, so most of the caravan either walked in front of or behind the machines. James wondered why it seemed the lower ranked mercenaries, like themselves, ended up in the vanguard, until he realized that if the machines were to accelerate in haste, they'd risk being run over.
 
 "There's no way the Perfects will leave us alone," James said. "This is too easy."
 
