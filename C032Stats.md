@@ -65,7 +65,7 @@ Meanwhile, James looked at his stats with new knowledge.
 > Lion: 24+5\
 > Gorilla: 32+1\
 > Crane: 1\
-> Speed: 16+6\
+> Runner: 16+6\
 > Ambush: 8+1\
 >
 > Magic use: 0%\
