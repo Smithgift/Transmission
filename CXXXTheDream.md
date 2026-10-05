@@ -16,7 +16,7 @@ James laid the captain down. There was no hope he'd survive.
 
 "Can I go home... I'm so sorry. I should have known..."
 
-Lucky bent over and whispered something into his ear. James caught the word 'Joshua.'
+Lucky bent over and whispered something into his ear. James caught the word "Joshua,
 
 The captain nodded, and then disappeared in a flash, items and his torn uniform spilling out.
 

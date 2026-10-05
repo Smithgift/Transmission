@@ -1,6 +1,6 @@
 ## 
 
-"But---" the captain looked bewilder.
+"But---" the captain looked bewildered.
 
 "We do not have time to discuss this! Turn the ship around and ram the gate! I command you!"
 
