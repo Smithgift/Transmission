@@ -12,7 +12,7 @@ James saw Ralph's bulky frame in the torch-lit crowd. "Lucky, why did you---?" R
 
 Stella was talking with the quartermaster, apparently pleading. "I'm sorry, I don't know why he just ran off---"
 
-"You!" the quartermaster said, glaring at Lucky. "How dare you run off with some wood? We paid."
+"You!" the quartermaster said, glaring at Lucky. "How dare you run off with some wood? We paid for it."
 
 "Please, listen," James said. "There's Slavers nearby?"
 
@@ -20,19 +20,23 @@ Stella was talking with the quartermaster, apparently pleading. "I'm sorry, I do
 
 Ralph clasped the quartermaster on the shoulder. "Listen to Lucky here. She just mapped the area."
 
-Lucky helpfully unrolled the scroll at that moment. The quartermaster looked through it, then muttered a curse, before shouting "Alfred!"
+Lucky helpfully unrolled the map at that moment. The quartermaster looked through it, then muttered a curse, before shouting "Alfred!"
 
-The captain of the guard came to the quartermaster. "Jeff, what the..." he saw the scroll. "How the nurck did you get a mapping scroll that big... NURCK!" He switched to shouted. "Everyone to arms! There's an ambush nearby!"
+The captain of the guard came to the quartermaster. "Jeff, what the..." he saw the map. "How the did you get a map scroll that big... NURCK! If they know we're here..." He motioned another guard over. "Get everyone on watch. We might be dealing with slavers."
+
+The guard saluted and started bellowing at a crowd of mercenaries.
+
+"Come with us," the captain said.
 
 * * *
 
 Somehow, between the young merchant having a crush on Violet, Paul knowing Stella, and the quartermaster's respect for Ralph, James's party got sucked into the discussion on what to do, in a cramped circle inside the front hauler's helm.
 
-"This is far bigger than any map scroll I've ever seen," an elderly Thinker with the merchants said. "Not a local area scroll, at least." Lucky shifted nervously.
+"This is far bigger than any magic map I've ever seen," an elderly Thinker with the merchants said. "Not a local area scroll, at least." Lucky shifted nervously.
 
 "I'd wager the Slavers thought they were out of range of any magical mapping," the captain of the guard mused. "They're not a large enough camp to be seen by the wide-area scrolls. If one of their scouts saw we had to stop, they're probably planning to attack tonight. We're a much juicer target than Ironspire."
 
-"They might have known our schedule," the young merchant said softly. "It's not as if we're not regular enough. Paul, is there any way we could rig up some kind of weapon?"
+"They might have known our schedule," the young merchant said softly. "It's not as if we're not regular enough. Paul, is there any way we could rig up some kind of weapon with the broken hauler?"
 
 Paul shook his head. "Not in any reasonable timeframe."
 
@@ -46,7 +50,7 @@ James looked at Lucky. Lucky was quiet and afraid, but James realized the fact t
 
 "You did?" the captain asked Lucky.
 
-"She had the scroll," the quartermaster said.
+"She had the map," the quartermaster said.
 
 "I did," Lucky said. She touched her nose and showed them her stats screen.
 
@@ -83,7 +87,7 @@ They sat together in the helm, James' party surrounding Lucky as much as possibl
 
 He could use some calming, he thought. He could feel his heart hammer, made all the worse by how slow the Slavers were advancing. Stella touched him on the shoulder---even with the armor between, James felt relief.
 
-Lucky ripped a local area mapping scroll every half hour, immediately handing the scroll to the captain, who only nodded. "As I thought. They're heading this way."
+Lucky ripped a local area mapping scroll every half hour, immediately handing the new map to the captain, who only nodded. "As I thought. They're heading this way."
 
 "Probably trying to reach us before they can get mapped by a regular scroll," Ralph said.
 
@@ -98,4 +102,3 @@ One more ripped scroll, and Lucky said. "They're here."
 The captain took one look at the scroll, and then slammed his fist on a large red button on the controls nearby. An earsplitting alarm wailed for one moment. Shouts of defiance came the next.
 
 And then hideous, inhuman shrieks came from above.
-

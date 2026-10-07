@@ -18,7 +18,7 @@ The merceneries grumbled and stood around. "Great," James said. "Just nurcking g
 
 She shrugged. "Probably not. There's no option to, but it's remotely possible that high _hamartia_ makes machines break."
 
-"I don't know if they needed that," Violet said. "If it's that particular hauler that got hit, maybe something internal got damaged."
+"I don't know if they needed that," Violet said. "If it's that particular hauler that got hit by the boulder, maybe something internal got damaged."
 
 "It's possible," Stella said. "I'd think it would have broken earlier."
 
