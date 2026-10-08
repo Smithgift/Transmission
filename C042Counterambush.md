@@ -1,4 +1,4 @@
-## Counterambush
+## Counter-ambush
 
 James and Lucky immediately ran for the caravan. If there were Slavers nearby...
 
@@ -42,7 +42,7 @@ Paul shook his head. "Not in any reasonable timeframe."
 
 "We _might_ be able to take them," the captain said. "Especially since we know they're there, and they don't know we know."
 
-"A counterambush?" Ralph suggested.
+"A counter-ambush?" Ralph suggested.
 
 "Best bet," the captain said. "Then run like nurck tomorrow to get to Ironspire. Who cast that map spell?"
 

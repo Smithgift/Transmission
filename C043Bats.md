@@ -6,7 +6,7 @@ Slavers tried jumping down with levitation scrolls, only to be torn apart by sha
 
 A bat shrieked down on them. Stella sliced into it with her sword but nearly fell off the hauler. James caught her, only for a second bat to crash into him and knock them both off.
 
-The impact didn't hurt as much as he thought it would, although Stella cried out in pain. In the darkness, he couldn't tell who was who, but at least the bats were hostile to everyone. He stabbed one with his spear, only for it to not die and become a bat shiskabob. He hammered it against the side of the hauler until it became bits of ethereal leather.
+The impact didn't hurt as much as he thought it would, although Stella cried out in pain. In the darkness, he couldn't tell who was who, but at least the bats were hostile to everyone. He stabbed one with his spear, only for it to not die and become a bat shishkebob. He hammered it against the side of the hauler until it became bits of ethereal leather.
 
 A party of Slavers came down on them---no military forks or spears, only swords. They got blasted from above by a series of fire spears. Most fell. The two remaining charged James and Stella. A bat bit through one's helmet, and Stella parried the other's blow. James stabbed to find his spear ineffective, but someone jumped down and crashed him into the ground: Ralph. Together James and Ralph hammered at weak points until he flashed away.
 
@@ -24,7 +24,7 @@ And then, the chaos faded. Aside from cries of pain and shouts, the battle had e
 
 Violet helped Lucky down the latter. Lucky's arm was a mass of red, and her face grimaced. "I can handle the wounds," she said. "Set something on fire."
 
-James saw a pile of wood, and grapping his old enchanted spear, poked at it until it burned.
+James saw a pile of wood, and grabbing his old enchanted spear, poked at it until it burned.
 
 Lucky, with effort, opened up her inventory, and got a scroll to fall out. Violet threw it into the fire and it flashed blue. _"Oru hara haru aluri paru pari,"_ she chanted, and instantly the wounds disappeared.
 

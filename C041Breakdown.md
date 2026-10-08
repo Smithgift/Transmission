@@ -10,7 +10,7 @@ The other mercenaries were little more happy, but the captain bellowed over all 
 
 "That's not an option! Now shut up and stay on guard."
 
-The merceneries grumbled and stood around. "Great," James said. "Just nurcking great." He looked up. The 'Sun' would not be merrily shining much longer, or at least it would go down over the canyon walls. "Why _can't_ they just leave it behind? Profit?"
+The mercenaries grumbled and stood around. "Great," James said. "Just nurcking great." He looked up. The 'Sun' would not be merrily shining much longer, or at least it would go down over the canyon walls. "Why _can't_ they just leave it behind? Profit?"
 
 "No," Ralph said. "We're carrying vital supplies. Without that hauler, Ironspire would run out of wood for fires or just plain food."
 

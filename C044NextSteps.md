@@ -16,7 +16,7 @@ A worried noise from Stella made James turn: she had her destiny screen out, and
 
 "Yes, or the fact we just killed plenty of monsters and people," Lucky said. "Sometimes we'd pump everyone nearby full of _hamartia_ so we could send more and bigger monsters."
 
-"Great," James said. "Do you think people will mind if we gather up some loot?"
+"Great," James said. "Do you think people will mind if we gather up some loot?" He looked eagerly around at the fallen Slavers' gear.
 
 "Let's," Ralph said. "If we killed it, it's ours. That's the rule."
 
@@ -24,7 +24,7 @@ A worried noise from Stella made James turn: she had her destiny screen out, and
 
 It took well into the morning before the caravan was ready to move again, between cleaning up the battlefield, fixing the haulers that had been damaged, and the inevitable need for humans to celebrate the victory. 
 
-They also had time to mourn, briefly. The mercenaries had taken plenty of causalties, and so had the actual employed guards and the merchants. Unfortunately, the young merchant who liked Violet had gotten killed---who knew by what---but Paul had made it. "Last time I'm on one of these caravans," he muttered beside Stella as the haulers moved on.
+They also had time to mourn, briefly. The mercenaries had taken plenty of casualties, and so had the actual employed guards and the merchants. Unfortunately, the young merchant who liked Violet had gotten killed---who knew by what---but Paul had made it. "Last time I'm on one of these caravans," he muttered beside Stella as the haulers moved on.
 
 That had also been a good thing: James's party ended up on one of the haulers itself, riding the unpleasant bumpiness as the caravan made the final stretch. He looked around: Ralph seemed sober, Stella distressed, Violet exhausted, and Lucky looking around with her usual weary expression. James himself felt relieved that they had all made it, especially considering the injuries. They couldn't talk about their next steps, however, because Paul was there.
 
@@ -34,7 +34,7 @@ James didn't like how close Paul wanted to sit next to Stella.
 
 "Probably not another caravan trip, either," Violet said.
 
-"Figured." He streched. "Know some good places in Ironspire to crash. Know some real dungholes, too."
+"Figured." He stretched. "Know some good places in Ironspire to crash. Know some real dungholes, too."
 
 "Hey, man," James said at last. "We're going to do our own thing, OK?"
 
@@ -62,7 +62,7 @@ Violet had the look of someone who was trying her hardest not to speak, and Luck
 
 The outpost looked like someone had sincerely tried to build a stereotypical fantasy mining outpost, but had run into difficulties that this world did not supply the right materials. Everything was made of smoothstone, and the buildings more ramshackle than quaint. Miners walked to and fro---the mining never ceased. Nor did the fires, for sometimes monsters would wander out of the mines, seeking to destroy.
 
-The moment Paul was out of eyeshot, Ralph muttered. "Let's keep outside city walls. Even if the Perfects wouldn't send a Titan, they could sent something like that stream of monsters on the caravan.""
+The moment Paul was out of eye shot, Ralph muttered. "Let's keep outside city walls. Even if the Perfects wouldn't send a Titan, they could sent something like that stream of monsters on the caravan.""
 
 "Agreed," Lucky said. 
 
