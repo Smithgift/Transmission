@@ -63,19 +63,19 @@ Chapter 19: James ends up raging at the Hold over the theft and stirs up enough 
 
 Chapter 20: Unable to find a Trog Tribe, James tries his luck with the Wayfarers. Almost all of the parties reject him, but one takes to his mixture of honesty and forthrightness. They explain that Lucky, one of their members, is convinced that Labyrinth fights are scaled to the number of people entering, and thus the Dragon Trog Tribe was doomed from the start. Lucky agrees to let James join after looking at his mysterious tree screen, and James now has a new party!
 
-Chapter 21: James's new party heads over to the hold's armory surplus, where the quartermaster is incredibly happy to see Lucky of all people. After causally paying them an large sum of materials, the party gets James equipped with high-end gear and weaponry.
+Chapter 21: James's new party heads over to the hold's armory surplus, where the quartermaster is incredibly happy to see Lucky of all people. After causally paying them a large sum of materials, the party gets James equipped with high-end gear and weaponry.
 
-Chapter 22: The party searches the lower tunnels in search of rooms. Lucky, in turns out, is insanely lucky, and any jar of treasure she opens will have insane loot in it. It also seems Lucky and Ralph can interpret the mysterious symbols on room doors. Lucky, however, tends to wander off in the middle of the 'night', and Ralph speculates something traumatic must have happened to her.
+Chapter 22: The party searches the lower tunnels in search of rooms. Lucky, it turns out, is insanely lucky, and any jar of treasure she opens will have insane loot in it. It also seems Lucky and Ralph can interpret the mysterious symbols on room doors. Lucky, however, tends to wander off in the middle of the 'night', and Ralph speculates something traumatic must have happened to her.
 
 Chapter 23: The party agrees to assault a Labyrinth. On arrival, they find the Lion Trog Tribe planning to assault, themselves. As whoever wins will close the Labyrinth permanently, Fred argues they should join the Lions. Lucky argues that the day is unlucky, and waiting one more day would be better. Eventually the party sides with Lucky.
 
 Chapter 24: They wait a day. The worldclimbers of the party tell James about the War of Indenture on the Surface: a perpetual struggle between slave-holding cities and free cities, both of which need large numbers of agricultural workers to keep themselves fed. Meanwhile, the Lions try but are destroyed. James rages, then feels guilt for not telling them.
 
-Chapter 25: The party assaults the Labyrinth on Lucky's perfect day, and find the monsters much less numerous. On attacking the Guardian, however, monsters spill from behind while the spawners activate, and in the chaos Fred is badly injured. Lucky spams fire spears at the end and the Guardian flashes into light. 
+Chapter 25: The party assaults the Labyrinth on Lucky's perfect day, and finds the monsters much less numerous. On attacking the Guardian, however, monsters spill from behind while the spawners activate, and in the chaos Fred is badly injured. Lucky spams fire spears at the end and the Guardian flashes into light. 
 
 Chapter 26: They've killed the Guardian, and worldclimbed! But Fred is too badly injured to continue, and after seeing the Surface for himself, throws away his Phoenix Sword and dies. Tension begins building in the party.
 
-Chapter 27: The tension grows, and suddenly they start arguging with Lucky. Why didn't her luck help Fred? And where did she get all of those fire spear scrolls? Things snap when the rest of the party cuts down what (in her opinion) is the wrong tree, and after the argument grows she ends up revealing her hair---she's a Perfect!
+Chapter 27: The tension grows, and suddenly they start arguing with Lucky. Why didn't her luck help Fred? And where did she get all of those fire spear scrolls? Things snap when the rest of the party cuts down what (in her opinion) is the wrong tree, and after the argument grows she ends up revealing her hair---she's a Perfect!
 
 Chapter 28: Lucky is actually Athena Perl, a Perfect who was Transmitted after falling in love with an Unwanted named Joshua. She has a bonnet because otherwise she's been horribly mistreated and abused by the rest of the Transmitted. She knows things about the Tower of Worlds (as she calls it) and that the screen of two trees represents what this mysterious culture considered good and evil. The white tree, _arete_, makes better drops, and thus gave Lucky "luck." The black tree spawns monsters, and they have to burn the right kind of logs to prevent them from spawning. The party accepts her, and tension dissipates... sort of.
 
@@ -85,9 +85,9 @@ Chapter 30: Though trickery, they ambush and kill the patrol, which **RETCON ALE
 
 Chapter 31: They arrive at a town, where Ralph talks to a guard about an old battle they both fought in (and Ralph died in.) They file for ID cards that will make them welcome in most of the Free cities, and then discuss their next moves. A barmaid tells them that Northwood City has a system for reuniting separated people and everyone, except strangely for Lucky, is psyched about going there.
 
-Chapter 32: On the trip, Lucky tells the others about the true namse of the stats, named after animals considered paragons: Lion, Gorilla, Crane, Speed, and Ambush, though Lucky is uncertian about the specific animals in the last two. Lucky mentions the Perfects aren't certain despite testing it, and it wasn't in the manual, but then immediately ends the discussion.
+Chapter 32: On the trip, Lucky tells the others about the true names of the stats, named after animals considered paragons: Lion, Gorilla, Crane, Speed, and Ambush, though Lucky is uncertain about the specific animals in the last two. Lucky mentions the Perfects aren't certain despite testing it, and it wasn't in the manual, but then immediately ends the discussion.
 
-Chapter 33: They arrive at Northwood City, and discuss what to do. The rest party wants to keep looking for jobs to pay for much better gear, but James wants to look for Stella. While musing about his next steps, he shows up at a factory's open house and sees the many machines there, following rules which do not exist on Earth. Passing by the workshop, James spots Stella herself.
+Chapter 33: They arrive at Northwood City, and discuss what to do. The rest of the party wants to keep looking for jobs to pay for much better gear, but James wants to look for Stella. While musing about his next steps, he shows up at a factory's open house and sees the many machines there, following rules which do not exist on Earth. Passing by the workshop, James spots Stella herself.
 
 Chapter 34: It _is_ Stella! They go home to Stella's apartment, where she reveals she is saving money for a future house for them to live together in. James proposes, and they head to say goodbye to the rest of his party. But Lucky takes them both aside immediately and warns them that they are in grave danger.
 
@@ -99,10 +99,12 @@ _Why_ the Oru created the Tower of Worlds is still a mystery. Theory A proponent
 
 Chapter 37: Lucky continues by warning the Oru had a concept of the living interfering with the dead: you could pay to have the dead cursed or blessed. And the same is true of the human Perfects: they can pay money to help or hinder the Transmitted. Lucky fears that the Perfects would send Titans to destroy whatever city they stay in, as three of the people they hate the most are together. Their only option is to climb to the fourth world, where the cameras can't go and there is no apparent way to interfere with the Transmitted. The party all agrees to go.
 
-Interlude 1: Vulkan Lisp, the Perfect responsible for our heroes misfortune, fumes that he was thwarted. He contacts his father, a member of the Supreme Council, to get far more credits to stop our heroes' ascent.
+Interlude 1: Vulkan Lisp, the Perfect responsible for our heroes' misfortune, fumes that he was thwarted. He contacts his father, a member of the Supreme Council, to get far more credits to stop our heroes' ascent.
 
 Chapter 38: Lucky teaches the party the elaborate ritual for learning spells, that no one had managed to discover by chance. James and co get some spells of blue magic. They debate what to do, knowing the Perfects are watching their every move.
 
 The key, literally, to get to the next world involves slaying the three kaijū-sized Titans, impossible for a small party like themselves. But key fragments can be bought from those who did slay Titans, and they decide to use their superior knowledge of the Tower of Worlds to grind money.
 
 Chapter 39: Stella goes to withdraw her life savings to see that the bank has had a run. They end up on a caravan to Ironspire, a mining outpost. On the way, an alarm blares.
+
+Chapter 40: Ettins attack! The caravan survives, although one hauler has taken a bad hit. The next night, spider-riding gremlins attack and Stella, who is arachnophobic, freaks out. The next day, the merchants foolishly try to push through the last leg of the journey, a steep canyon, in the hopes of reaching Ironspire before nightfall. As they march on, the captain orders a halt.
