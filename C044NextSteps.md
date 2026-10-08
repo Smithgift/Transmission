@@ -68,7 +68,7 @@ The moment Paul was out of eye shot, Ralph muttered. "Let's keep outside city wa
 
 So they headed out some distance from the walls and sat on the sandy rock.
 
-Stella counted their pay. The quartermaster hadn't been able to raise their base pay from the 70 he had promised them ("stupid corporate reasons" he had muttered) but he gave them all a nice bonus, so together they had around five thousand freebucks. That wasn't rich, but it also wasn't poor.
+Stella counted their pay. The quartermaster hadn't been able to raise their base pay from the 70 he had promised them ("stupid corporate reasons" he had muttered) but he gave them all a nice bonus, so together they had around five thousand freedollars. That wasn't rich, but it also wasn't poor.
 
 They had also nabbed weapons from the fallen Slavers, but the armor tended either to have holes from the shadow bats or just the wrong size. James found a glowing pair of boots, however, and he found he could jump pretty far with them.
 
@@ -118,7 +118,7 @@ James didn't mind spending time with Stella, but he found that Stella was a barg
 
 "Yeah?"
 
-She paused."I... guess it doesn't matter now, except that it does. The fight he got into with a superior? It was over a Worker girl who said he was stalking her."
+She paused."I... guess it doesn't matter now, except that it kind of does. The fight he got into with a superior? It was over a Worker girl who said he was stalking her."
 
 "...*What?*" James asked.
 
@@ -158,4 +158,4 @@ They sorted out the rest of watches. James lay down and thought he couldn't slee
 
 He dreamed of his trial, but the accuser wasn't Vulkan Lisp, it was Paul. But Paul didn't have a legal case, he had a machine to fix, and James couldn't fix it but Paul could. The Arbiter kept ordering it redone, and try as James could, he could never fix it to the Arbiter's satisfaction. And Paul reached for Stella, and she screamed---
 
-His eyes shot open. No, that wasn't a dream!
+His eyes shot open. That wasn't part of the dream!
