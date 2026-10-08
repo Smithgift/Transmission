@@ -6,9 +6,9 @@ Slavers tried jumping down with levitation scrolls, only to be torn apart by sha
 
 A bat shrieked down on them. Stella sliced into it with her sword but nearly fell off the hauler. James caught her, only for a second bat to crash into him and knock them both off.
 
-The impact didn't hurt as much as he thought it would, although Stella cried out in pain. In the darkness, he couldn't tell who was who, but at least the bats were hostile to everyone. He stabbed one with his spear, only for it to not die and become a bat shiskabob. He hammered it against the side of the hauler until it died.
+The impact didn't hurt as much as he thought it would, although Stella cried out in pain. In the darkness, he couldn't tell who was who, but at least the bats were hostile to everyone. He stabbed one with his spear, only for it to not die and become a bat shiskabob. He hammered it against the side of the hauler until it became bits of ethereal leather.
 
-A party of Slavers came down on them---no military forks or spears, only swords. They got blasted from above by a series of fire spears. Most fell. The two remaining charged James and Stella. A bat bit through one's helmet, and Stella parried the others blow. James stabbed to find his spear ineffective, but someone jumped down and crashed him into the ground: Ralph. Together James and Ralph hammered at weak points until he flashed away.
+A party of Slavers came down on them---no military forks or spears, only swords. They got blasted from above by a series of fire spears. Most fell. The two remaining charged James and Stella. A bat bit through one's helmet, and Stella parried the other's blow. James stabbed to find his spear ineffective, but someone jumped down and crashed him into the ground: Ralph. Together James and Ralph hammered at weak points until he flashed away.
 
 A Slaver fell off the side of the canyon and died on impact. He had a glowing spear, which James grabbed. In the light, he could see bats everywhere, and people running, mercenary and Slaver alike.
 
@@ -52,4 +52,4 @@ Stella was also looking at it with happiness. "Thank you so much."
 
 "What is so awesome about that?" James started.
 
-"This is worth more than everything in the caravan combined," Lucky said, holding the gem.
+"This is worth more than everything else in the caravan combined," Lucky said, holding the gem.

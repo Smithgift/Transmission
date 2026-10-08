@@ -38,7 +38,7 @@ One Worker man looked up from the mass of parts. _"Stella?"_
 
 Paul OCaml had been one of James' coworkers, who had gotten Transmitted over an argument with a superior. He had the charisma and social skills of a vat-grown turnip, but James had to admit, Paul was good with machines.
 
-James also had to admit he had little idea of what he was looking at, but it seemed mostly mechanical parts. Strangely enough, not a single part seemed even slightly worn or rusty. That was one of the strange things about the Tower of Worlds: nothing every wore out or got damaged unless you deliberately did something to it.
+James also had to admit he had little idea of what he was looking at, but it seemed mostly mechanical parts. Strangely enough, not a single part seemed even slightly worn or rusty. That was one of the bizarre things about the Tower of Worlds: nothing every wore out or got damaged unless you deliberately did something to it.
 
 "Nothing seems wrong," Paul explained. "But it's not working."
 
@@ -74,13 +74,13 @@ Everyone paused and looked at her.
 
 Unloading and reloading took hours, and not before long, only the dimming blue sky remained of the day. The work had to be done via torchlight.
 
-James and Stella hefted up a bundle of wood tied with an orange-green rope onto a pile in the front hauler. Another strange thing: on Earth, Stella's slight build had needed help with even medium-sized weights, but with all their increased stats, she could lift them easily.
+James and Stella hefted up a bundle of wood tied with an orange-green rope onto a pile in the front hauler. Another strange thing: on Earth, Stella's had needed help with even medium-sized weights due to her slight build, but with all their increased stats, she could lift them easily.
 
 Someone else overloaded a different pile and but a bundle of wood fell off the side of the hauler and crashed. "Leave it!" the captain barked. "We need to get moving."
 
 James saw Lucky grab a piece of wood and run off down the canyon walls. James followed. "Lucky? What are you---?"
 
-Lucky set the wood down, pulled out her tinderbox from the inventory, and set the piece of wood on fire. Then she threw a scroll into it, blazing yellow. _"Alari alui paru hara Oru."_ she chanted. With a yellow flash, a massive scroll appeared in her hand. She unrolled it, looked at it and trembled.
+Lucky set the wood down, pulled out her tinderbox from the inventory, and set the piece of wood on fire. Then she threw a scroll into it, blazing yellow. _"Alari alui paru hara Oru."_ she chanted. With a yellow flash, a massive sheet of paper appeared in her hand. She unrolled it, looked at it and trembled.
 
 "Lucky, what?" James said, and trailed off when he saw the contents.
 

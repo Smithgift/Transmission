@@ -12,7 +12,7 @@ James saw Ralph's bulky frame in the torch-lit crowd. "Lucky, why did you---?" R
 
 Stella was talking with the quartermaster, apparently pleading. "I'm sorry, I don't know why he just ran off---"
 
-"You!" the quartermaster said, glaring at Lucky. "How dare you run off with some wood? We paid for it."
+"You two!" the quartermaster said, glaring at Lucky. "First of all, you were ordered to help move the supplies---"
 
 "Please, listen," James said. "There's Slavers nearby?"
 
@@ -22,7 +22,7 @@ Ralph clasped the quartermaster on the shoulder. "Listen to Lucky here. She just
 
 Lucky helpfully unrolled the map at that moment. The quartermaster looked through it, then muttered a curse, before shouting "Alfred!"
 
-The captain of the guard came to the quartermaster. "Jeff, what the..." he saw the map. "How the did you get a map scroll that big... NURCK! If they know we're here..." He motioned another guard over. "Get everyone on watch. We might be dealing with slavers."
+The captain of the guard came to the quartermaster. "Jeff, what the..." he saw the map. "How the did you get a map that big... NURCK! If they know we're here..." He motioned another guard over. "Get everyone on watch. We might be dealing with Slavers."
 
 The guard saluted and started bellowing at a crowd of mercenaries.
 
@@ -87,7 +87,7 @@ They sat together in the helm, James' party surrounding Lucky as much as possibl
 
 He could use some calming, he thought. He could feel his heart hammer, made all the worse by how slow the Slavers were advancing. Stella touched him on the shoulder---even with the armor between, James felt relief.
 
-Lucky ripped a local area mapping scroll every half hour, immediately handing the new map to the captain, who only nodded. "As I thought. They're heading this way."
+Lucky ripped a local area mapping scroll every half hour, immediately handing the new map to the captain, who only nodded. "As I thought. They're speeding up this way."
 
 "Probably trying to reach us before they can get mapped by a regular scroll," Ralph said.
 
@@ -96,6 +96,8 @@ Lucky ripped a local area mapping scroll every half hour, immediately handing th
 "Greenwald division."
 
 "Ah." The captain returned to silence.
+
+James badly wanted to clobber something or someone, but no chance. Not until the Slavers arrived.
 
 One more ripped scroll, and Lucky said. "They're here."
 
