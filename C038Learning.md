@@ -104,7 +104,7 @@ They all looked at her.
 
 "Yeah?" James asked.
 
-"We could attempt to kill Slavers and steal the key pieces off their corpses."
+"We could kill Slavers and take key fragment off of them."
 
 "As much as I hate the Slavers, it's high-risk," Lucky said. "And it's only the high-ranking Slavers who'd even have key fragments laying around."
 
