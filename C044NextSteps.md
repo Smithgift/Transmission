@@ -2,7 +2,7 @@
 
 "A key fragment?" Violet asked.
 
-"Yes, and it's already been refined," Lucky put it in her inventory. "Tell no one. We're a third of the way there."
+"Yes, and it's already been refined," Lucky put the gem in her inventory. "Tell no one. We're a third of the way there."
 
 James suddenly realized how insanely generous the captain had been. "I thought the Slaver leaders didn't leave their cities," James whispered.
 
@@ -14,11 +14,11 @@ A worried noise from Stella made James turn: she had her destiny screen out, and
 
 "The Perfects?" Violet asked.
 
-"Yes, or the fact we just killed plenty of monsters and people," Lucky said. "Sometimes we'd pump everyone nearby full of _hamartia_ so we could send more and bigger monsters."
+"Yes, or the fact we just killed plenty of monsters and people," Lucky said. "Sometimes we'd pump everyone nearby full of _hamartia_ so we could send more and bigger monsters." She looked around. "They must have thought that the Slavers being so close would let them send something really nasty. They just overplayed their hand."
 
-"Great," James said. "Do you think people will mind if we gather up some loot?" He looked eagerly around at the fallen Slavers' gear.
+"At least there's that." James looked eagerly at the piles of armor and weapons "Do you think people will mind if we gather up some loot?"
 
-"Let's," Ralph said. "If we killed it, it's ours. That's the rule."
+"Take the stuff that doesn't look Slaver," Ralph said. "If we killed it, it's ours. That's the rule."
 
 * * *
 
@@ -58,8 +58,6 @@ Violet had the look of someone who was trying her hardest not to speak, and Luck
 
 "Let's get going," James said. Everyone got up and followed him.
 
-* * *
-
 The outpost looked like someone had sincerely tried to build a stereotypical fantasy mining outpost, but had run into difficulties that this world did not supply the right materials. Everything was made of smoothstone, and the buildings more ramshackle than quaint. Miners walked to and fro---the mining never ceased. Nor did the fires, for sometimes monsters would wander out of the mines, seeking to destroy.
 
 The moment Paul was out of eye shot, Ralph muttered. "Let's keep outside city walls. Even if the Perfects wouldn't send a Titan, they could sent something like that stream of monsters on the caravan.""
@@ -68,7 +66,7 @@ The moment Paul was out of eye shot, Ralph muttered. "Let's keep outside city wa
 
 So they headed out some distance from the walls and sat on the sandy rock.
 
-Stella counted their pay. The quartermaster hadn't been able to raise their base pay from the 70 he had promised them ("stupid corporate reasons" he had muttered) but he gave them all a nice bonus, so together they had around five thousand freedollars. That wasn't rich, but it also wasn't poor.
+Stella counted their pay. The quartermaster hadn't been able to raise their base pay from the 70 he had promised them ("stupid corporate reasons" he had muttered) but he gave them all the maximum bonus he could, so together they had around five thousand freedollars. That wasn't rich, but it also wasn't poor.
 
 They had also nabbed weapons from the fallen Slavers, but the armor tended either to have holes from the shadow bats or just the wrong size. James found a glowing pair of boots, however, and he found he could jump pretty far with them.
 
@@ -82,7 +80,7 @@ They had also nabbed weapons from the fallen Slavers, but the armor tended eithe
 
 "And Lucky, you know a lot about the Oru theology of this all."
 
-"More or less, yes," Lucky said.
+"More or less, yes," Lucky said. "We don't know all that much about them."
 
 "So why not use your 'luck' to get rare items, then you and Stella can enchant them with powerful enchantments? Even if you mess up some times, you could still get some pretty powerful stuff to sell."
 
