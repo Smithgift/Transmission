@@ -6,7 +6,7 @@
 
 "What does the rest say?" Violet asked.
 
-Lucky looked again. "Should a fool venture (something) without (something) another (something) in nobility and _arete_ let him beware that the curse of falling will be dealt unto him, yea, even unto his party."
+Lucky looked again. "'Should a fool venture (something) without (something) another (something) in nobility and _arete_ let him beware that the curse of falling will be dealt unto him, yea, even unto his party.''"
 
 "Nurck," James said. "That doesn't say anything."
 
@@ -24,7 +24,7 @@ Lucky looked again. "Should a fool venture (something) without (something) anoth
 
 Ralph shook his head. "Levitation isn't that bad of a curse, but who the nurck knows what will set it off? Do we try this one or look for another?"
 
-"Might be just as bad," Lucky said. "The expeditions were less able to decipher Oru inscriptions as they climbed."
+"Might be just as bad," Lucky said. "The expeditions were less and less able to decipher Oru inscriptions as they climbed."
 
 "Can't we just peak inside, and if it's too much retreat?" Stella asked.
 
@@ -44,7 +44,7 @@ Lucky pushed open the door and they crept inside.
 
 Deja vu struck James first, for the maze inside looked more or less like a Labyrinth in the Underneath. Thankfully, the same training they needed for Labyrinths came in handy here---take every left, and make marks along the way. James felt his heart speed up, but remembered they could leave whenever they felt like it and there was no time time limit.
 
-It still amped up his emotions.
+His emotions remained amped as dung.
 
 A ettin came by and James nailed one head with a glowing spear while Ralph got the other. It didn't even have a chance to fight back. "Don't get cocky," Ralph muttered, and James nodded.
 
@@ -60,7 +60,7 @@ Another door. Lucky touched it only for dust to spew out in their faces. It burn
 
 "Forgot about room traps," Ralph said. "Lucky almost never gets them."
 
-"Don't jinx it!" Lucky hissed. She pushed open the door and a metal scorpion awaited. James charged in with a roar. He speared it. It shot its stinger at him. He speared it again, and then shouted as they all flew into the ceiling. A second or two later, they fell back down. The scorpion was ready, and got Ralph in the arm. Lucky ripped a scroll and incinerated it.
+"Don't jinx it!" Lucky hissed. She pushed open the door and a metal scorpion awaited. James charged in with a roar. He speared it. It shot its stinger at him. He speared it again, and then shouted as they all slammed into the ceiling. A second or two later, they fell back down. The scorpion was ready, and got Ralph in the arm. Lucky ripped a scroll and incinerated it.
 
 "Ralph!" Violet said, rushing to him.
 
@@ -70,7 +70,7 @@ Lucky went to the jars, whispered something, and opened one to find a pill. "Her
 
 Ralph took it, and the redness disappeared, though his armor was still damaged. "That's lucky even for you."
 
-"It wasn't," Lucky said. "I asked for some pills, and it seems one of my benefactors was around. It doesn't always send what you ask, though."
+"It wasn't," Lucky said. "I asked for some pills, and it seems one of my benefactors was around. The system doesn't always send what you pay it to, though."
 
 "Let's be careful," Violet said. "And not rely on your benefactors, even if they are helping us."
 
@@ -82,7 +82,7 @@ Ralph took it, and the redness disappeared, though his armor was still damaged. 
 
 The next room was full of bats, no curse. The room after that was another scorpion, and James stayed behind while Stella and Ralph cut it apart. Not a curse in sight.
 
-The sixth room held a huge and hideous frog-thing. James yelled a battle cry and speared it. His spear stuck, and he kicked it, only for them all to be flung yet again against the ceiling. The frog-thing croaked, but without a ranged attack that's all it could do before the party crashed back down and killed it.
+The sixth room held a huge and hideous frog-thing. James yelled a battle cry and speared it. His spear stuck inside, and he kicked it, only for them all to be flung yet again against the ceiling. The frog-thing croaked, but without a ranged attack that's all it could do before the party crashed back down and killed it.
 
 "It must be the spear," Ralph said.
 
@@ -102,13 +102,13 @@ The sixth room held a huge and hideous frog-thing. James yelled a battle cry and
 
 * * *
 
-Surface dungeons had a total of sixteen rooms, according to Ralph, and after you cleared the fifteen the final room would open. Unfortunately, some had already been cleared out by other adventurers. Six rooms later, they found another unopened one.
+Dungeons on the Surface had a total of sixteen rooms, according to Ralph, and after you cleared the fifteen the final room would open. Unfortunately, some had already been cleared out by other adventurers. Six rooms later, they found another unopened one.
 
 "I'll stay back, promise," James said. He got his bola ready---maybe that would be enough if push came to shove.
 
-Lucky opened the door. Stella shrieked. Inside, an enormous spider reared and spit acid. Ralph charged and chopped at it, only for them all to hit the ceiling. Stella continued to shriek. James threw his bola. They fell again, and James got up, drew his backup short sword, and stabbed the spider.
+Lucky opened the door. Stella shrieked. Inside, an enormous spider reared and spit acid. Ralph charged and chopped at it, only for them all to hit the ceiling. Stella continued to shriek. James threw his bola downwards and hit the monster. They fell again, and James got up, drew his backup short sword, and stabbed the spider.
 
-They got flung back up to the ceiling. Lucky ripped a scroll and ethereal arrows pierced through the spider and it collapsed. Then they fell down again.
+Then they were flung back up to the ceiling. Lucky ripped a scroll and pointed. Ethereal arrows pierced through the spider and it collapsed. Then they fell down again.
 
 "Stella!" James said, rushing to her.
 

@@ -44,7 +44,7 @@ The caravan rumbled underneath them.
 
 * * *
 
-James had expected Ironspire to have, well, a _spire._ That was sort of true, in that there was an large peak that had numerous mining shafts into it. But it wasn't really a spire. Nor, according to Stella, was the material they mined really iron---it did not exhibit any of the metallurgic properties of Earth iron, despite being named the same thing. But still, if you were going to name a mine, Ironspire seemed pretty metal.
+James had expected Ironspire to have, well, a _spire._ That was sort of true, in that there was an large mountain that had numerous mining shafts into it. But it wasn't _quite_ a spire, more of an enormous mesa. Nor, according to Stella, was the material they mined really iron---it did not exhibit any of the metallurgic properties of Earth iron, despite being named the same thing. But still, if you were going to name a mine, Ironspire seemed pretty metal.
 
 "They say those shafts were already there when people came here," Paul said. "Wonder who put them in. The Perfect's game designer?"
 
@@ -58,7 +58,7 @@ Violet had the look of someone who was trying her hardest not to speak, and Luck
 
 "Let's get going," James said. Everyone got up and followed him.
 
-The outpost looked like someone had sincerely tried to build a stereotypical fantasy mining outpost, but had run into difficulties that this world did not supply the right materials. Everything was made of smoothstone, and the buildings more ramshackle than quaint. Miners walked to and fro---the mining never ceased. Nor did the fires, for sometimes monsters would wander out of the mines, seeking to destroy.
+The outpost looked like someone had sincerely tried to build a stereotypical fantasy mining outpost, but had run into the difficulty that this world did not supply the right materials. Everything was made of smoothstone, and the buildings more ramshackle than quaint. Miners walked to and fro---the mining never ceased. Nor did the fires, for sometimes monsters would wander out of the mines, seeking to destroy.
 
 The moment Paul was out of eye shot, Ralph muttered. "Let's keep outside city walls. Even if the Perfects wouldn't send a Titan, they could sent something like that stream of monsters on the caravan.""
 
@@ -86,7 +86,7 @@ They had also nabbed weapons from the fallen Slavers, but the armor tended eithe
 
 "Powerful, but not top-end," Lucky said. "That's only manufactured from rare materials."
 
-"It'd be academic for most Transmitted," Ralph said, hand on his chin in thought. "The armies use standardized equipment, but no adventurer is going to say 'no' to a highly enchanted rare drop."
+"It'd be academic for most Transmitted." Ralph's hand scratched his chin in thought. "The armies use standardized equipment, but no adventurer is going to say 'no' to a highly enchanted rare drop."
 
 "We could also just use it for ourselves," James said. "We need to be stronger."
 

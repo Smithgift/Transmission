@@ -1,6 +1,6 @@
 ## Phobia
 
-James grabbed his spear and it shone to life. The spider-rider danced in and out of range, no one quite hitting it. Lucky threw a dart, but it missed. James threw a bola. It connected with a leg. The spider sagged, and the gremlin fell. With a scream of rage James got the kill, while Ralph kept hacking at the spider until it vanished in red.
+James grabbed his spear and it shone to life. The spider-rider danced in and out of range, no one quite hitting it. Lucky threw darts, but missed. James threw his bola. It connected with a leg. The spider sagged, and the gremlin fell. With a scream of rage James got the kill, while Ralph kept hacking at the spider until it vanished in red.
 
 Stella sobbed uncontrollably.
 
@@ -72,9 +72,9 @@ James whirled to look, but in the crowd, no one.
 
 "Might have been a coincidence," Lucky said. "But let's keep an eye out."
 
-No one spotted him again. By the time they reached the large dark mouth to the mineshaft, James had half-decided that it had just been a fluke. Stella was right. Maybe he was just reading things into things.
+No one spotted him again. By the time they reached the large dark mouth to the mineshaft, James had half-decided that it had just been a fluke. Stella was right. Maybe he was just reading things into random coincidences.
 
-The tunnels were lit with a mixture of glowing lamps and patches of that blue bioluminent moss. Marks on the tunnels, the same style as the Underneath, indicated the location of ore patches and dungeon spawn areas. Hames had expected minecarts and was not completely disappointed. But they were pulled by luckless miners, guarded by armed Transmitted. Perhaps the depths were too dangerous to have automated machinery.
+The tunnels were lit with a mixture of glowing lamps and patches of that blue bioluminent moss. Marks on the tunnels, the same style as the Underneath, indicated the location of ore patches and dungeon spawn areas. James had expected minecarts and was not completely disappointed. But they were pulled by luckless miners, guarded by armed Transmitted. Perhaps the depths were too dangerous to have automated machinery.
 
 "No, it's just that you can't fit powered wheels on machines that small," Stella said when James asked. "I looked into a more advanced rails system based on pulleys but there's simply no way to fit them in. The boss said it'd been tried and rejected already."
 
