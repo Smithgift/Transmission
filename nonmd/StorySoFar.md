@@ -11,7 +11,8 @@ Ralph ML: A big Worker man who leads the party of Wayfarers that James just join
 Violet Haskel: A thoughtful Thinker woman in Ralph's party.\
 Fred Python: A tall Worker with Ralph's party, who has since died. \
 Lucky (Athena Perl): A Perfect who has been Transmitted, secretly posing as an Unwanted so horrible things don't happen to her. She knows a lot about the Tower of Worlds.\
-Vulkan Lisp: the dungpit Perfect who was betrothed to Athena, and also tried to force himself on Stella. A total creep.
+Vulkan Lisp: the dungpit Perfect who was betrothed to Athena, and also tried to force himself on Stella. A total creep.\
+Paul OCaml: A mechanic with the caravan to Ironspire, who knew Stella from before his Transmission.
 
 The story so far:
 
@@ -108,3 +109,9 @@ The key, literally, to get to the next world involves slaying the three kaijū-s
 Chapter 39: Stella goes to withdraw her life savings to see that the bank has had a run. They end up on a caravan to Ironspire, a mining outpost. On the way, an alarm blares.
 
 Chapter 40: Ettins attack! The caravan survives, although one hauler has taken a bad hit. The next night, spider-riding gremlins attack and Stella, who is arachnophobic, freaks out. The next day, the merchants foolishly try to push through the last leg of the journey, a steep canyon, in the hopes of reaching Ironspire before nightfall. As they march on, the captain orders a halt.
+
+Chapter 41: One of the haulers broke down. James and Stella investigate to find Paul OCaml, a former coworker of theirs, is a mechanic with the caravan. It turns out that one hauler is damaged beyond easy repair, and the merchants decide to abandon it and send the remaining supplies (vital to Ironspire) on the other caravans. This takes time, and Lucky grabs some fallen wood to start a fire and cast a local-area mapping spell. Other "Oru" (humans) are nearby, and they probably aren't friendly.
+
+Chapter 42: James and co warn the caravan, who plot a counter ambush. Lucky repeatedly maps the area to watch the Slavers approach. When they reach the caravan, suddenly, inhuman shrieks!
+
+Chapter 43: The caravan, the Slavers, and shadow bats fight in a three-way free-for-all. Everyone in James' party survives, though Lucky is badly injured before healing herself with magic. The captain of the guard, grateful to them for saving their whole party, comes with a gem taken off a Prince of the Slavers, which Lucky says is worth more than the whole caravan's entire cargo.
