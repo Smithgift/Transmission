@@ -6,10 +6,13 @@ Shielding
 
 Healing
 
-Sanctuary.
+Sanctuary. "When a man by a peaceful river sits"
 
 Growth
 
+### Green
+
+"Let us recall the ancient heroes"
 
 ### Red
 
