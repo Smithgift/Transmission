@@ -12,7 +12,7 @@ Growth
 
 ### Green
 
-"Let us recall the ancient heroes"
+"Let us recall the ancient heroes."
 
 ### Red
 
