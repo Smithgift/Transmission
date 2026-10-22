@@ -52,11 +52,11 @@ They all raised their hands.
 
 Whether they fully understood the curse or not, James figured they had understood enough of it by how well things were going.
 
-The fourteenth room held a three-headed ettin. "Careful!" shouted Lucky as James, Ralph and Stella advanced. James knew he was going to be careful---his head hurt from all the levitation. He stabbed it, narrowly avoided striking again. It swung at him, but Ralph chopped off its arm, leaving the stump glowing red. Stella got the kill with her sword.
+The fourteenth room held a three-headed ettin. "Careful!" shouted Lucky as James, Ralph and Stella advanced. James knew he was going to be careful---his head hurt from all the past levitations. He stabbed it, narrowly avoided striking again. It swung at him, but Ralph chopped off its arm, leaving the stump glowing red. Stella got the kill with her sword.
 
 "Don't get cocky," Ralph muttered. "We still don't know the exact wording of the curse."
 
-On the way to clearing the rest of the dungeon, they ended up passing by their old marks and Lucky insisted on checking the entrance door again. "I want another look at the characters."
+On the way to clearing the rest of the dungeon, they ended up passing by their old chalk marks and Lucky insisted on checking the entrance door again. "I want another look at the characters."
 
 They stepped out, and James came face to face with Paul. "Oh, hey, James," he said. "Crazy seeing you down here."
 
@@ -78,7 +78,7 @@ James came very, very close to punching him. "Her name is Lucky," Stella said fi
 
 The moment James thought he was out of earshot, he started "That creepy---" 
 
-"---James!" Stella interrupted. "We don't know that this is anything! We didn't tell him we'd go dungeon crawling in here."
+"---James!" Stella interrupted. "We don't know that this is anything! We didn't tell him we'd go dungeon crawling in here. He must have just signed up."
 
 "Yeah, well, he was mean to Lucky," James insisted.
 
