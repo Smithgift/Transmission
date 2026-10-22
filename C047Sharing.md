@@ -8,7 +8,7 @@ They all looked to Lucky in confirmation. "Maybe," Lucky said, thoughts easily s
 
 "Is it plausible, at least?" Stella asked.
 
-"Very, because it seems like the weird sort of thing the Oru had hangups about. Sharing in everything, so maybe they didn't want anyone _not_ stealing another's kill." Lucky looked more thoughtful. "And the prohibited action did end with 'in nobility and _aretē_,' which is a phrase they use for morally unacceptable behavior.""
+"Very, because it seems like the weird sort of thing the Oru had hangups about. Sharing in everything, so maybe they didn't want anyone _not_ stealing another's kill." Lucky looked more thoughtful. "And the prohibited action did end with 'in nobility and _aretē_,' which is a phrase they use for morally unacceptable behavior."
 
 "What does 'fight' mean if it's that?" Ralph wondered. "We're all here... but we aren't wailing on the monster at the same time."
 
@@ -28,7 +28,7 @@ Skitters came from outside, and James readied his spear to see a yellow crab.
 
 "Lucky, what---" Violet started, but James got close and kicked it twice. They all slammed into the ceiling. "James! Give us a warning!"
 
-They crashed back down. "Ralph, let's alternate kicking it," James said, pushing himself back up. Ralph joined him, and together they battered the creature without issue.
+They crashed back down. "Ralph, let's alternate kicking it," James said, pushing himself back up. Ralph joined him, and together they battered the creature, back-and-forth one hit at a time. Everyone stayed on the ground.
 
 "Good enough," Ralph said, as the crab futily scraped at their legs. "Any other test?"
 
@@ -50,7 +50,7 @@ They all raised their hands.
 
 * * *
 
-Whether they fully understood the curse or not, James figured they had understood enough of it by how well things were going.
+Whether they fully understood the curse or not, James figured they had understood enough of it by how well things were going. Most of the monsters died in a single good hit anyway.
 
 The fourteenth room held a three-headed ettin. "Careful!" shouted Lucky as James, Ralph and Stella advanced. James knew he was going to be careful---his head hurt from all the past levitations. He stabbed it, narrowly avoided striking again. It swung at him, but Ralph chopped off its arm, leaving the stump glowing red. Stella got the kill with her sword.
 
@@ -78,7 +78,7 @@ James came very, very close to punching him. "Her name is Lucky," Stella said fi
 
 The moment James thought he was out of earshot, he started "That creepy---" 
 
-"---James!" Stella interrupted. "We don't know that this is anything! We didn't tell him we'd go dungeon crawling in here. He must have just signed up."
+"---James!" Stella interrupted. "We don't know that this is anything! We didn't tell him we'd go dungeon crawling in here. He must have just signed up for the mines as a coincidence."
 
 "Yeah, well, he was mean to Lucky," James insisted.
 

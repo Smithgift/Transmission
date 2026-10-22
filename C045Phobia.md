@@ -74,7 +74,7 @@ James whirled to look, but in the crowd, no one.
 
 No one spotted him again. By the time they reached the large dark mouth to the mineshaft, James had half-decided that it had just been a fluke. Stella was right. Maybe he was just reading things into random coincidences.
 
-The tunnels were lit with a mixture of glowing lamps and patches of that blue bioluminescent moss. Marks on the tunnels, the same style as the Underneath, indicated the location of ore patches and dungeon spawn areas. James had expected minecarts and was not completely disappointed. But they were pulled by luckless miners, guarded by armed Transmitted. Perhaps the depths were too dangerous to have automated machinery.
+The tunnels were lit with a mixture of glowing lamps and patches of that blue bioluminescent moss. Marks on the tunnels, the same style as the Underneath, indicated the location of ore patches and dungeon spawn areas. James had expected minecarts and was not completely disappointed. But they were pulled by luckless miners, protected by armed Transmitted. Perhaps the depths were too dangerous to have automated machinery.
 
 "No, it's just that you can't fit powered wheels on machines that small," Stella said when James asked. "I looked into a more advanced rails system based on pulleys but there's simply no way to fit them in. The boss said it'd been tried and rejected already."
 

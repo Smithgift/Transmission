@@ -108,7 +108,7 @@ Yeah, either Paul had zero social skills, or he was stalking Stella. The first w
 
 "Let's take a right," Ralph said. "We'll go around the outside of Ironspire, since I don't think we can get through in time."
 
-"We don't any wood," Stella said.
+"We don't have any wood," Stella said. "We left it behind---"
 
 "Yeah, we _have_ to go to Ironspire," Violet said.
 
@@ -154,9 +154,9 @@ They ended up paying for one room, ground-floor as Lucky insisted. ("Better to e
 
 "Run?" Lucky suggested. "I don't think Ironspire is large enough to take on a Titan, but it's likely got enough _hamartia_ to make one spawn. And if not, Vulkan can always spread the hate around prior to pressing the button."
 
-"I don't think we can run off the walls," Ralph said. "They _might_ open one of the porticulis for people to flee, but chances are they'll leave them closed against the additional monsters a Titan can summon."
+"City's surrounded by walls," Ralph said, shaking his head. "They _might_ open one of the porticulis for people to flee, but chances are they'll leave them closed against the additional monsters a Titan can summon."
 
-"We can't climb the walls?" James asked.
+"We can't climb the walls?" James asked, his shoulders dropping.
 
 "We might survive the fall, but they're going to be heavily guarded atop, and we might not get through. 'cept the guards will probably be running to defend whatever wall is standing against the Titan." Ralph scratched his chin.
 
@@ -172,7 +172,7 @@ They ended up paying for one room, ground-floor as Lucky insisted. ("Better to e
 
 "Hear that, Vulkan, you lying dungpit?" James asked out loud. "If you send a Titan, you're just playing into our hands."
 
-Nervous chuckles spread around the room, which James knew ruined the taunt. But maybe it still got him.
+Nervous chuckles spread around the room, which James knew ruined the taunt. But maybe it still got under that jerk's skin.
 
 "Here's a thought," Violet said. "If it smashes the walls, could we go around it once it attacks the city?"
 

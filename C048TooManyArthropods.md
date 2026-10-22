@@ -4,7 +4,7 @@ James spotted the big spider first. And it wasn't just big, it was nurcking enor
 
 Lucky shouted something, but James didn't hear. He needed to kick some spinnerets! He stabbed one spider only for two more to charge him while a spray came from behind. Ralph charged in beside him and cleaved a spider in two. The third spun around and raced towards the women. He threw a bola and bagged it, but then more spiders swarmed him.
 
-A fire spear shot out and struck the big spider, one after another. It reared and spat out---more spiders. Nurck!
+A fire spear shot out and struck the big spider. It reared and spat out---more spiders. Nurck!
 
 "Kill the big one!" Lucky shouted.
 
@@ -30,7 +30,7 @@ And then, silence.
 
 "None... none taken," Stella said, sitting down. "I'm... I'm going to be OK. I just need... quiet. I'll be fine."
 
-James knew she wasn't, but he wasn't getting there as long as Violet was getting the salves on. "Turn over," she said. He did and realized how much acid he had been exposed to on the other side.
+James knew she wasn't, but he wasn't getting there as long as Violet was getting the salves on him. "Turn over," she said. He did and realized how much acid he had been exposed to on the other side.
 
 "Why did the Oru put item durability in this stupid game-world?" he muttered out loud. "Don't they know how much that mechanic sucks?"
 
@@ -106,9 +106,9 @@ James didn't know why that felt so unsettling, but it did.
 
 "Let me check one thing first," Lucky said, scratching symbols into the sand. "You should all learn this, too, I guess. See those little symbols under the words at the top of the scroll?" They all peered over her shoulder. "We don't know what the Oru called them, but we call them rubytext, the phonetic and tonal readings of the characters. One reason we believe the texts are written in archaic Oru, and their scripture, is that there'd be no reason to put this kind of aid in their world if the words were just ordinary speech."
 
-Lucky then wrote numbers in Oru below the copied rubytext. "Now each phoneme and tone has a numerical value, so you multiply them together per character. Then you add them up to get the numerical values of each character and you get... this number." Lucky wrote 2048+448+8+2, the Oru equivalent of 2506, at the end. "And we see it's a green spell. Awesome. We can learn it this cycle, when the green stars shine." She stuffed it back in her inventory.
+Lucky then wrote numbers in Oru below the copied rubytext. "Now each phoneme and tone has a numerical value, so you multiply them together per character. Then you add them up to get the numerical values of each character and you get... this number." Lucky wrote 2048+448+8+2, the Oru equivalent of 2506, at the end. "And we see it's a green spell. Awesome. We can learn it this tomorrow, when the green stars shine." She stuffed it back in her inventory.
 
-James looked, fascinated. He considered himself good with numbers---you know, good, normal, real numbers. Counting. Fractions. Ratios. That he understood. But Stella once told him there were numbers that didn't work like that, that weren't really fractions, and pi was one of them, and _those_ were the real numbers. It never made any sense to him, but this Oru stuff looked like good ol' multiplication. "Let's learn Oru from you," he suggested.
+James looked, fascinated. He considered himself good with numbers---you know, good, normal, _real_ numbers. Counting. Fractions. Ratios. That he understood. But Stella once told him there were numbers that didn't work like that, that weren't really fractions, and pi was one of them, and _those_ were the real numbers. It never made any sense to him, but this Oru stuff looked like good ol' multiplication. "Let's learn Oru from you," he suggested.
 
 "Yeah," Violet said. "And then we can chant the spells like you do."
 
@@ -134,7 +134,7 @@ James didn't want to answer that, so he didn't.
 
 "Then at the very least stand back to keep her safe!" Ralph thundered. "We had a chokepoint with the door! Lucky could have hammered them with fire and someone else with darts. If it wasn't for Stella charging in at the end, we'd all have died."
 
-James had to admit he was right. "Fine," he said. "I messed the nurck up." He decided to change the topic a little. "Where were you in all the chaos?"
+James had to admit he was right. "Fine," he said. "I messed the nurck up." He decided to change the subject a little. "Where were you in all the chaos?"
 
 "Trying to keep the spiders off Lucky. Biggest nurckload of spiders I'd ever seen."
 
