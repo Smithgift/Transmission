@@ -116,7 +116,7 @@ Yeah, either Paul had zero social skills, or he was stalking Stella. The first w
 
 * * *
 
-They didn't nurcking hurry fast enough. By the time they reached the mine-side entrance to Ironspire, the guards were already getting ready to lower the porticulis. "Hey!" one shouted. "Get in!"
+They didn't nurcking hurry fast enough. By the time they reached the mine-side entrance to Ironspire, the guards were already getting ready to lower the portcullis. "Hey!" one shouted. "Get in!"
 
 "Lucky, what do we---" James started.
 
@@ -140,7 +140,7 @@ A guard glared. "Are you that party that keeps coming in and out at weird times?
 
 "You know, it's only a theory that the Perfects would send a Titan if we stayed in a city," Violet said, in a tone that didn't sound like even she believed it.
 
-"If Vulkan Lisp is after us, he could afford to send a Titan," Lucky said. "And the more we stress about it, the more likely he's going to send one. Unless he wants to play mindgames, which is entirely him."
+"If Vulkan Lisp is after us, he could afford to send a Titan," Lucky said. "And the more we stress about it, the more likely he's going to send one. Unless he wants to play mind games, which is entirely him."
 
 "Yeah, go nurck yourself," James said to the sky. Then kissed Stella, who held the kiss for a deliberately long time.
 
@@ -154,7 +154,7 @@ They ended up paying for one room, ground-floor as Lucky insisted. ("Better to e
 
 "Run?" Lucky suggested. "I don't think Ironspire is large enough to take on a Titan, but it's likely got enough _hamartia_ to make one spawn. And if not, Vulkan can always spread the hate around prior to pressing the button."
 
-"City's surrounded by walls," Ralph said, shaking his head. "They _might_ open one of the porticulis for people to flee, but chances are they'll leave them closed against the additional monsters a Titan can summon."
+"City's surrounded by walls," Ralph said, shaking his head. "They _might_ open one of the portcullis for people to flee, but chances are they'll leave them closed against the additional monsters a Titan can summon."
 
 "We can't climb the walls?" James asked, his shoulders dropping.
 

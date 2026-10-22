@@ -30,7 +30,7 @@ Skitters came from outside, and James readied his spear to see a yellow crab.
 
 They crashed back down. "Ralph, let's alternate kicking it," James said, pushing himself back up. Ralph joined him, and together they battered the creature, back-and-forth one hit at a time. Everyone stayed on the ground.
 
-"Good enough," Ralph said, as the crab futily scraped at their legs. "Any other test?"
+"Good enough," Ralph said, as the crab futilely scraped at their legs. "Any other test?"
 
 "Try a mix of melee and missile?" Violet suggested.
 
@@ -66,7 +66,7 @@ James had to resist the urge to punch him or spear him. "Hey," he said, not both
 
 "No," Ralph said firmly.
 
-"Ah. I work here now, by the way." He glaced over to Lucky, who was staring at the symbols. "What the nurck is your magic Unwanted doing?"
+"Ah. I work here now, by the way." He glanced over to Lucky, who was staring at the symbols. "What the nurck is your magic Unwanted doing?"
 
 James came very, very close to punching him. "Her name is Lucky," Stella said firmly. "And if you want to know, just ask her."
 

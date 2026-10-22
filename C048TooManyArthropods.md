@@ -112,7 +112,7 @@ James looked, fascinated. He considered himself good with numbers---you know, go
 
 "Yeah," Violet said. "And then we can chant the spells like you do."
 
-"Sure," Lucky seemed a little embarassed.
+"Sure," Lucky seemed a little embarrassed.
 
 "Let's also work on the enchanting," Stella said, as if uncomfortable.
 
@@ -128,7 +128,7 @@ Ralph, it turned out, wanted to talk.
 
 James didn't want to answer that, so he didn't.
 
-"I understand," he said. "The units in the Free army that had married couples had the worst causalties of us all. But it's just not something we can risk going forward."
+"I understand," he said. "The units in the Free army that had married couples had the worst casualties of us all. But it's just not something we can risk going forward."
 
 "Ralph, dude," James snapped. "I wasn't thinking. You know how much Stella is afraid of spiders."
 
