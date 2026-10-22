@@ -12,7 +12,7 @@ Violet Haskel: A thoughtful Thinker woman in Ralph's party.\
 Fred Python: A tall Worker with Ralph's party, who has since died. \
 Lucky (Athena Perl): A Perfect who has been Transmitted, secretly posing as an Unwanted so horrible things don't happen to her. She knows a lot about the Tower of Worlds.\
 Vulkan Lisp: the dungpit Perfect who was betrothed to Athena, and also tried to force himself on Stella. A total creep.\
-Paul OCaml: A mechanic with the caravan to Ironspire, who knew Stella from before his Transmission.
+Paul OCaml: A mechanic with the caravan to Ironspire, who knew Stella from before his Transmission. Possibly a stalker.
 
 The story so far:
 
@@ -115,3 +115,9 @@ Chapter 41: One of the haulers broke down. James and Stella investigate to find 
 Chapter 42: James and co warn the caravan, who plot a counter ambush. Lucky repeatedly maps the area to watch the Slavers approach. When they reach the caravan, suddenly, inhuman shrieks!
 
 Chapter 43: The caravan, the Slavers, and shadow bats fight in a three-way free-for-all. Everyone in James' party survives, though Lucky is badly injured before healing herself with magic. The captain of the guard, grateful to them for saving their whole party, comes with a gem taken off a Prince of the Slavers, which Lucky says is worth more than the whole caravan's entire cargo.
+
+Chapter 44: The gem is a key fragment! They're a third of the way there. They arrive at Ironspire. Paul, the mechanic, seems oddly interested in the party, and Stella is concerned that he may be a stalker. The party camps out and decides to go dungeon-crawling in search of rare items to enchant and sell, or use themselves. They go to bed, but James wakes up to Stella screaming.
+
+Chapter 45: The Perfects sent a single spider-rider to torment Stella. They fight it off, but she's traumatized. They head to the dungeons found in the mines, known to be incredibly dangerous. As they read the Oru outside, Lucky does not understand the curse they warn about.
+
+Chapter 46: The curse seems to cause levitation if something is done _without_ something, but Lucky can't interpret the characters. Knowing that the Perfects themselves had been less and less able to understand the Oru inscriptions, they decide to just risk it. They fight several monsters and minibosses, but whatever the curse is, they keep triggering it by accident. After a disasterous battle with a giant spider, Violet thinks she's figured it out.
