@@ -186,7 +186,7 @@ Nervous chuckles spread around the room, which James knew ruined the taunt. But 
 
 "Yeah. Bad odds." Lucky sighed. "But that's all we've got."
 
-"I'm sorry," Stella said. "I should have insisted---"
+"I'm sorry," Stella said. "I should have insisted we stop earlier---"
 
 Lucky grabbed Stella's hand in hers. They were silent for a moment, then let go.
 
