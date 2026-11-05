@@ -18,7 +18,7 @@ _BOOM!_ The floor rocked underneath them. Stella covered her ears.
 
 A loud HISS rang out, and the ground shook underneath them. The panicked Transmitted ran for it, dropping things in their wake. The party followed into the dark streets.
 
-James looked around for the Eyedra and immediately knew he could never have spagetti with meatballs ever again.
+James looked around for the Eyedra and immediately knew he could never have spaghetti with meatballs ever again.
 
 The Eyedra towered over Ironspire and even shed its glowing light on the mesa behind it. Enormous eyeballs, the size of haulers, watched with indifference towards the humans it attacked. Hundreds of worm-like growths connected one eyeball to another, or had smaller eyeballs at the end. For one instant the night turned bright as day with a ray from one of the wall-cannons, slicing off a portion of the mass into red lines. It HISSED again, and the severed ends grew into new eyes like budding flowers, and more worms shot out to rejoin the rest of the Titan.
 
@@ -44,7 +44,7 @@ More Transmitted fired upwards, striking eye or worm in the mass overhead. It HI
 
 Stella screamed. James almost turned---but some force within him held him in place, spear forward. The eye crashed into the front lines, glowing red wounds spouting everywhere, and turned as if to roll over. Lucky's Oru chanting turned to shouting, and fire spears slammed into the eye until it exploded.
 
-Another wave of worms followed immediately after, save for one cycloptic worm staying a distance in the rear. It hissed, loudly enough to be understood. _"Aru Aku Apari Alu Raui."__ A wave of firey rings cut through Transmitted, and the next moment, the lines broke.
+Another wave of worms followed immediately after, save for one cycloptic worm staying a distance in the rear. It hissed, loudly enough to be understood. _"Aru Aku Apari Alu Raui."_ A wave of fiery rings cut through Transmitted, and the next moment, the lines broke.
 
 "Retreat!" Ralph shouted, too late. They ran, but not in any organized formation. _BOOM! BOOM!_ Bright flashes shot overhead. Stella tripped on a rock, and James dropped his spear to pick her up and keep running.
 
@@ -58,4 +58,4 @@ Another wave of worms followed immediately after, save for one cycloptic worm st
 
 "That worm used magic," Violet said. "Does it have magic?"
 
-"No," Lucky said, quiverring. "It... it used the color nearby." She looked at the ring on her finger in fear. "From me."
+"No," Lucky said, quivering. "It... it used the color nearby." She looked at the ring on her finger in fear. "From me."
