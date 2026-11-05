@@ -44,9 +44,9 @@ More Transmitted fired upwards, striking eye or worm in the mass overhead. It HI
 
 Stella screamed. James almost turned---but some force within him held him in place, spear forward. The eye crashed into the front lines, glowing red wounds spouting everywhere, and turned as if to roll over. Lucky's Oru chanting turned to shouting, and fire spears slammed into the eye until it exploded.
 
-Another wave of worms followed immediately after, save for one cycloptic worm staying a distance in the rear. It hissed, loudly enough to be understood. "Aru Aku Apari Alu Raui." A wave of firey rings cut through Transmitted, and the next moment, the lines broke.
+Another wave of worms followed immediately after, save for one cycloptic worm staying a distance in the rear. It hissed, loudly enough to be understood. _"Aru Aku Apari Alu Raui."__ A wave of firey rings cut through Transmitted, and the next moment, the lines broke.
 
-"Retreat!" Ralph shouted, too late. They ran, but not in any organized formation. _BOOM! BOOM!_ Bright flashes came from behind. Stella tripped on a rock, and James dropped his spear to pick her up and keep running.
+"Retreat!" Ralph shouted, too late. They ran, but not in any organized formation. _BOOM! BOOM!_ Bright flashes shot overhead. Stella tripped on a rock, and James dropped his spear to pick her up and keep running.
 
 "Rally and hold!" a guard shouted, other Transmitted forming a disorganized mass around the professionals. James let go of Stella, and breathed. Then looked up. The Eyedra had only grown more eyes and worms, now turning to crush through Ironspire on the way to the next cannon.
 
