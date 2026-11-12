@@ -12,11 +12,11 @@ Growth
 
 ### Green
 
-"Let us recall the ancient heroes."
+"Let us recall the ancient heroes." _"Aruki A'aki Naraku Nalu."_ Summons ghostly armored giants.
 
 ### Red
 
-Fire spear
+Fire spear _"Oru Haru Hakari Paru Pari."_
 
 Firestorm
 

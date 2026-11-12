@@ -1,4 +1,4 @@
-## Key Fragment
+## Titan's Wake
 
 James turned to see Violet had frozen solid, her eyes staring ahead in terror. Stella was trying to pry off the ice with her bare hands, to no avail.
 
@@ -8,7 +8,7 @@ Yes, as long as Violet still had the Phoenix Sword wrapped in her hand, she coul
 
 "Lucky!" James called.
 
-"Wait," she said. "Magic side effects are temporary."
+"Wait," she said, her voice containing unsteady calm. "Magic side effects are temporary."
 
 "What do you mean, temp---"
 
@@ -37,7 +37,7 @@ James opened up his stats screen.
 > Magic use: 98%\
 > Wounds: 24%
 
-"That could have ended up much worse," James admitted. At least his Crane had skyrocketed, either from casting so many spells or being banged around by spells.
+"That could have ended up much worse," James admitted. At least his Crane had skyrocketed, either from casting so many spells or being banged around by the Eyedra's spells.
 
 "That's why I've been warning you," Lucky insisted.
 
@@ -71,7 +71,7 @@ Ironspire had been partially leveled by the battle. Some structures had survived
 
 "The key fragment Lucky already has was from the Great Wyrm," Stella said. "If we get enough heart material to refine one more gem..."
 
-They were more than halfway there. "Now that Lucky has that super-OP spell summoning---" James started.
+They were more than halfway there. "Now that Lucky has that super-OP summoning spell---" James started.
 
 "I don't. Sort of," Lucky interrupted.
 
@@ -113,7 +113,7 @@ James tapped his nose. "See? I can't open it."
 
 The guard muttered a curse to himself. "Well, here, I'll just hand it to you." He dug out one gently glowing brown rock, one shattered fragment of a lens, and one large dead worm. "Good work tonight. Next!"
 
-Each of them got the same loot, as far as James could tell, although the guard seemed unhappy to be sharing loot with an Unwanted. But he gave her thanks anyway and sent her on the way.
+Each of them got the same loot, as far as James could tell, although the guard seemed unhappy to be sharing loot with an Unwanted. But he gave Lucky thanks anyway and sent her on the way.
 
 "Now what?" James asked as he gratefully passed his share for Lucky to store.
 
@@ -177,7 +177,7 @@ _"PAUL!?"_ he about yelled.
 
 "Speaking of time, we should be on our way if we want to get out of here," Ralph said. "We're also taking a different route so we're not too close to the convoy. Lucky doesn't _think_ the Perfects can send another Titan, but we're better on our own."
 
-He followed them on their way. James was about to argue that they should have woken him to consult him, but before he could even put a word to his mouth Stella said. "We tried to wake you several times. You were sound asleep."
+He followed them on their way. James was about to argue that they should have woken him to consult him, but before he could even put a word to his mouth Stella said. "You were sound asleep."
 
 "I needed it," James said. "You?"
 
@@ -209,4 +209,4 @@ They came to an incense tree. "Let's stop here," Lucky said. "This should increa
 
 "So it's that ring that gives you the power?"
 
-They all turned to see that Paul, standing a few paces in front of them, had spoken.
+They all turned to see that Paul, standing a few paces in behind of them, had spoken.
