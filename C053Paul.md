@@ -1,6 +1,6 @@
 ## Paul
 
-Paul looked a little worse for the wear---missing patches in his armor, and a sword tied awkwardly on his hip, as if he had had to buy a replacement in a hurry.  He also had a hungry expression on his face.
+Paul looked a little worse for the wear---missing patches in his armor, and a sword tied awkwardly on his hip, as if he had had to buy a replacement in a hurry. He also had a hungry expression on his face.
 
 "You nurcking stalker!" James shouted.
 
@@ -48,7 +48,7 @@ Paul looked like he didn't even hear Lucky.
 
 _"Oru Haru Hakari Paru Pari."_ Lucky pointed at the tree, and a flame spear shot out and engulfed it instantly. She turned to Paul with a smug expression. "There is one now."
 
-The greed in Paul's eyes only grew, along with a hungry smile. "So that's it? The magic words? Oru Haru Hakuru---come on, help me out."
+The greed in Paul's eyes only grew, along with a hungrier smile. "So that's it? The magic words? Oru Haru Hakuru---come on, help me out."
 
 "Get your own campfire," James said. "This one's taken."
 
@@ -68,7 +68,7 @@ Then he turned to trying to annoy them: shouting, singing off-key, whining, and 
 
 Towards sundown he was back, circling them like a cat in the hydroponics impotently stalking the chickens behind the plexiglass. He made more arguments, then turned to outright pleading, begging forgiveness for his behavior. When that failed to elicit a reaction, he turned to screaming at them.
 
-More than once, James considered teaching him a lesson with physical consequences, but Stella held his hand to the sand.
+More than once, James considered teaching him a lesson with physical consequences, but Stella held his hand firmly down to the sand.
 
 Unfortunately, they could talk nothing of import as long as Paul was in earshot, or if he was screaming. To James's regret, it did not seem like throats got scratchy in the Tower of Worlds, or if they did they healed at a minute cost to one's wound meter. And so on and on it went.
 

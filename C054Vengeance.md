@@ -122,7 +122,7 @@ Once inside, Stella insisted on heading immediately to the factory where she use
 
 "I'll come with with you," James said.
 
-"I won't," Lucky said. "I don't want to mess up their enchanting with my color item." She opened up her inventory, and with a bit of sorting Stella had everything they needed.
+"I won't," Lucky said. "I don't want to mess up their enchanting with my color item. _Especially_ if it's the key fragment we're trying to refine." She opened up her inventory, and with a bit of sorting Stella had everything they needed.
 
 In fact, it turns out that loads of people had beaten them to the punch. The moment James and Stella stepped into the bright noisy factory, Stella's boss spotted her. "Stella!" he said with the gleam of happy upper management in his eyes. "We could use you! We've been flooded by Eyedra materials from Ironspire's defense, and we can barely refine them fast enough."
 
