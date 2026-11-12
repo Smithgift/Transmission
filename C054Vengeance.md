@@ -120,13 +120,17 @@ Word of Ironspire's desperate yet successful defense had reached Northwood long 
 
 Once inside, Stella insisted on heading immediately to the factory where she used to work. "My boss is a total morning person," she said. "If we're going to pitch something, it should be this early."
 
-In fact, it turns out that loads of people had beaten them to the punch. The moment they stepped into the bright noisy factory, Stella's boss spotted her. "Stella!" he said with the gleam of happy upper management in his eyes. "We could use you! We've been flooded by Eyedra materials from Ironspire's defense, and we can barely refine them fast enough."
+"I'll come with with you," James said.
+
+"I won't," Lucky said. "I don't want to mess up their enchanting with my color item." She opened up her inventory, and with a bit of sorting Stella had everything they needed.
+
+In fact, it turns out that loads of people had beaten them to the punch. The moment James and Stella stepped into the bright noisy factory, Stella's boss spotted her. "Stella!" he said with the gleam of happy upper management in his eyes. "We could use you! We've been flooded by Eyedra materials from Ironspire's defense, and we can barely refine them fast enough."
 
 "Actually," Stella said sheepishly. "We were coming to see if we could pitch you on us using your equipment to refine our own."
 
 The gleam dropped marginally. "I could offer you an employee discount if you were, to... err, consult for a bit. I haven't a clue how to lay out the machines without you, I admit."
 
-"Sure. What we really need is a key fragment..." Stella followed the boss down the hallways, and the party followed her into a large room.
+"Sure. What we really need is a key fragment..." Stella followed the boss down the hallways, and James followed her into a large room.
 
 James had imagined the Titan heart materials were melted down and cast, or maybe ground into pieces into shape. He wasn't quite wrong about the principle, just not the... mechanics.
 
@@ -134,7 +138,7 @@ An enormous machine like a long-armed juggler spun pieces around with a horrendo
 
 "Yes, I can definitely help," Stella called over the noise. "We can discuss the details, but the big thing is---"
 
-"James Algol, Stella Cobol, and party?" a voice demanded.
+"James Algol and Stella Cobol?" a voice demanded.
 
 James turned to see a patrol of armed guards, weapons at the ready.
 
