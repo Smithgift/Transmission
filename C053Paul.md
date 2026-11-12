@@ -1,6 +1,6 @@
 ## Paul
 
-Paul looked a little worse for the wear---missing patches in his armor and a hungry expression on his face.
+Paul looked a little worse for the wear---missing patches in his armor, and a sword tied awkwardly on his hip, as if he had had to buy a replacement in a hurry.  He also had a hungry expression on his face.
 
 "You nurcking stalker!" James shouted.
 
