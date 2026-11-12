@@ -38,7 +38,7 @@ Violet, meanwhile, was wondering something different. "Sending a Titan costs tho
 
 "So Vulkan Lisp spent somewhere around four hundred thousand Earth credits to send a Titan."
 
-"Yes. Or he pooled with friends and/or his sycopants."
+"Yes. Or he pooled with friends and/or his sycophants."
 
 "Can he _keep_ doing that?"
 

@@ -55,7 +55,7 @@ Great. Another mechanic Earth game designers had abandoned: having items actuall
 
 Ralph helped her unknot it.
 
-James took the bandana and tied it back around his head. Then it hit him. "Ralph! You got the last hit, right? We'll get the loot!"
+James took the bandanna and tied it back around his head. Then it hit him. "Ralph! You got the last hit, right? We'll get the loot!"
 
 "No use running," Ralph said. "Rule for Titans in every Free city I've ever been in is they distribute the parts equally to everyone who fought."
 
