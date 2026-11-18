@@ -56,7 +56,7 @@ James seriously considered punching him. But he simply took Stella's hand. "We w
 
 * * *
 
-The Perfect's version of the story was less full of lies than merely one continous lie. He left out Stella entirely, except that there had been a Unwanted involved.
+The Perfect's version of the story was less full of lies than merely one continuous lie. He left out Stella entirely, except that there had been a Unwanted involved.
 
 "What have you to say?" the judge said.
 
