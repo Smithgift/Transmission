@@ -14,7 +14,7 @@ James immediately felt twenty times better. "What he said," James said.
 
 James gleefully and very silently watched as his new lawyer argued with the Watcher over every last question. But he did glean some information _from_ their questions. Paul had apparently accused the party of assaulting him over the magic ring, which they "stole", and leaving him to die. He also had accused them of being spies for the Slavers, since they were entering and leaving the city at weird times, and even using a Titan summoning item to destroy Ironspire. Neither accusation would have stuck if it wasn't for Paul managing to crawl to the caravan, Phoenix Sword still in hand, and telling his side of the story first.
 
-The Watcher clearly realized he couldn't get either of them to budge, and eventually dismissed them. Mr. Root whispered in James's ear. "Keep quiet about everything. I need to talk to your partymate."
+The Watcher clearly realized he couldn't get either of them to budge, and eventually dismissed them. Mr. Rust whispered in James's ear. "Keep quiet about everything. I need to talk to your partymate."
 
 James nodded. When he came back to his cell, he almost whooped in the air. He was saved...
 
@@ -26,7 +26,7 @@ Another boring eternity later, and the guards took him to another boring room. "
 
 "I'm fine," she said. "A little stressed, but fine."
 
-Mr. Root cleared his throat. "I've gotten only bits and details from everyone. Tell me the whole story."
+Mr. Rust cleared his throat. "I've gotten only bits and details from everyone. Tell me the whole story."
 
 "We're innocent of everything," James said. "This is all Paul's fault. That and..." James almost said 'Vulkan,' but cut himself off.
 
@@ -34,21 +34,21 @@ Mr. Root cleared his throat. "I've gotten only bits and details from everyone. T
 
 "The Perfect who sent us here," Stella said. "He's really why we're down here."
 
-"We all are," Mr. Root said. "Let's get this sorted out. Your friend Athena said that you have a magic ring that can really do magic?"
+"We all are," Mr. Rust said. "Let's get this sorted out. Your friend Athena said that you have a magic ring that can really do magic?"
 
 Athena? Oh, because 'Lucky' likely had a warrant against her, too. "Yes," James said. "We can. But we don't want anyone knowing."
 
 "That's good and all, but some of the truth is going to leak out. Mr. OCaml has been complaining that he discovered a way to use magic, but you all took it from him. Lies, I realize, but the story travels."
 
-James knew it would happen eventually. They couldn't know so much about the Oru and the system without word one day leaking out. If it hadn't been tracable back to Lucky, it'd had been fine, but now... Too late, James realized.
+James knew it would happen eventually. They couldn't know so much about the Oru and the system without word one day leaking out. If it hadn't been traceable back to Lucky, it'd had been fine, but now... Too late, James realized.
 
-"I'll explain things," Stella said, and she went on to tell more or less the true story, but leaving out the Oru and Vulkan's powers. Maybe that was too much even for an lawyery ally.
+"I'll explain things," Stella said, and she went on to tell more or less the true story, but leaving out the Oru and Vulkan's powers. Maybe that was too much even to tell a lawyery ally.
 
-Mr. Root took extensive notes. "This is going to be difficult for Mr. OCaml to prove. But you also have some very bizarre behavior that's difficult to explain, like sleeping outside of cities."
+Mr. Rust took extensive notes. "This is going to be difficult for Mr. OCaml to prove. But you also have some very bizarre behavior that's difficult to explain, like sleeping outside of cities."
 
 "Isn't there some kind of, burden of proof or something?" James asked.
 
-Mr. Root shook his head. "We have only bits and pieces of what the legal system looked like in a democracy, and most of it's from half-remembered fiction or fragments of pre-Collapse articles, also half-remembered. The judges have taken the Scale's system and tried to make it fair, but I have to admit, they don't always succeed."
+Mr. Rust shook his head. "We have only bits and pieces of what the legal system looked like in a democracy, and most of it's from half-remembered fiction or fragments of pre-Collapse articles, also half-remembered. The judges have taken the Scale's system and tried to make it fair, but I have to admit, they don't always succeed."
 
 James's spirits sunk, along with his shoulders. "How soon can we get out?"
 
@@ -74,7 +74,7 @@ Ralph shook his head. "That dungpit was right. We _could_ get in trouble for ass
 
 "I know." Would for the days when he could just look at cool machines and didn't have to worry about Vulkan, Paul, _or_ giant eyeball monstrosities. Sometimes, he missed Earth.
 
-"Anyway, he got us a letter to _his_ boss, who was Werner Pony, the owner of this whole multi-city company. We ran as fast as we could across the cities 'till we reached Gemstar, found him, and gave him the letter. He was livid, too, and paid for our lawyer on the spot."
+"Anyway, he got us a letter to _his_ boss, who was Werner Pony, the owner of this whole Alliance-wide corporation. We ran as fast as we could across the cities 'till we reached Gemstar, found him, and gave him the letter. He was livid, too, and paid for our lawyer on the spot."
 
 "He's good."
 
@@ -102,9 +102,11 @@ The trial day came, still no Titans. James started to wonder if Vulkan had reall
 
 James and Stella were marched across the jail's courtyard to another squat building, one with the obligatory statue of blind Justice. James hoped that justice wouldn't be blind today... but he had checked his status screen. If all else failed, he still had his inventory, full of scrolls, a bola, and an unenchanted sword that they had looted the day before the Eyedra.
 
-They stepped into the courtroom, or what passed for one with materials this crude. Lucky, Ralph, Violet were ready on side side, all on edge, especially Lucky. Mr. Root sat beside them, calmer than everyone else in the room. On the other side sat the dungpit himself, with a hungry, crazed grin, as well as another thin man in a suit.
+They stepped into the courtroom, or what passed for one with materials this crude. Most of the furniture was wooden, but everything else was smoothstone.
 
-"Is that the prosecutor?" James whispered to Mr. Root.
+Lucky, Ralph, Violet were ready on side side, all on edge, especially Lucky. Mr. Root sat beside them, calmer than everyone else in the room. On the other side sat the dungpit himself, with a hungry, crazed grin, as well as another thin man in a suit.
+
+"Is that the prosecutor?" James whispered to Mr. Rust.
 
 "We don't have those. All cases are privately brought."
 

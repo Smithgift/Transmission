@@ -2,11 +2,11 @@
 
 "What the nurck?" James demanded.
 
-"Surely there must be some mistake!" Stella's boss protested, stepping in front of them. "Stella has been one of my hardest and most faithful workers!"
+"Surely there must be some mistake!" Stella's boss protested, stepping in front of them. "Stella has been one of my hardest working and most faithful engineers!"
 
 "I would like to see a warrant," Stella called firmly over the noise of the fragment-printer.
 
-James looked carefully at the party of guards as the lead guard, a Watcher man, approached with a document. Their armor looked uniformly manufactured, and could very much be the top-level machined stuff that Ralph had talked about. If Lucky with him and Stella, they had no chance, but she wasn't, and in any case there were seven of them. He placed his hand on his sword, and they all stared him down.
+James looked carefully at the party of guards as the lead guard, a Watcher man, approached with a document. Their armor looked uniformly manufactured, and could very much be the top-level machined stuff that Ralph had talked about. If Lucky with him and Stella, they had no chance, but she wasn't, and in any case there were seven of them. He placed his hand on his short sword's pommel, and they all stared him down.
 
 Stella's boss read the warrant with increasing volume. "Assault, theft, _treason?_ This is completely ridiculous! Stella is---"
 

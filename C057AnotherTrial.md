@@ -52,13 +52,13 @@ The judge banged his hammer. "Mr. OCaml, you are out of order!"
 
 "You saw I had it! Why didn't you give a nurck and check?"
 
-"May I bring it to the Court's attention that Mr. OCaml is now arguing as if Ms. Cobol's story was the truth?" Mr. Root said.
+"May I bring it to the Court's attention that Mr. OCaml is now arguing as if Ms. Cobol's story was the truth?" Mr. Rust said.
 
 Dead silence filled the courtroom.
 
 The judge shook his head. "Mr. OCaml, if you were not attacked by monsters, why are you so upset that your opposing party did not help you with said monsters?"
 
-Paul's lawyer hissed something in his ears, and Paul hissed something back. Time passed. James resisted, with his whole will, the desire to gloat. At last Paul said. "I mispoke."
+Paul's lawyer hissed something in his ears, and Paul hissed something back. Time passed. James resisted, with his whole will, the desire to gloat. At last Paul said. "I misspoke."
 
 "Ms. Cobol, is there anything more to your story?"
 
@@ -78,4 +78,4 @@ Silence followed, James risking a smirk at Paul, and Paul looking furious back.
 
 "Mr. OCaml, please calm down," the lawyer said nervously.
 
-Paul paused for one moment, holding his face. Then drew his Phoenix Sword out of his inventory and charged them.
+Paul paused for one moment, holding his face. Then drew his Phoenix Sword out of his inventory and charged.
