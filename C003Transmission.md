@@ -34,15 +34,19 @@ Early the next morning he walked to the Tertiary Transmission Center. He could s
 
 He came to the large metal doors, labeled in bold print: TRANSMITTED ONLY: DOOR IS ONE WAY. He shrugged and walked inside, the first door opening to the second, and the second opening once the first slammed shut.
 
-The pen inside---waiting room would not be putting it well, was already full of people, people crying, waiting, sitting, laughing, or raging. A few sat in a corner whispering to each other. Stella was nowhere to be seen---but her trial was today, not her inevitable Transmission.
+The pen inside---waiting room would not be putting it well---, was already full of people, people crying, waiting, sitting, laughing, or raging. A few sat in a corner whispering to each other. Stella was nowhere to be seen---but her trial was today, not her inevitable Transmission.
 
 He did look around the pen and counted hair colors. Lots of workers, but not a small number of Thinkers, either. A Watcher in jet blue hair watched from a corner---to be Transmitted, he realized, not to guard. A few Unwanted hung out in the opposite corner, bemused at the fate of their fellow Transmitted. After all, who knew how things would fare in the Destination?
 
-A clock glowed above, but James watched tick through 0900 and keep going. Evidentally, they didn't care that much about keeping a schedule after all.
+A clock glowed above, but James watched it tick through 0900 and keep going. Evidently, they didn't care that much about keeping a schedule after all.
 
-Every now and then an inner door would open, Watchers with pain batons at the ready, and grab a to-be-Transmitted seemingly at random. They tended to pick the nearest, James realized, or those causing the most fuss.
+Every now and then an inner door would open, and Watchers with pain batons at the ready, would grab a to-be-Transmitted seemingly at random. They tended to pick the nearest, James realized, or those causing the most fuss.
 
-No bathroom, no water fountains, and not even a chair. This looked like it would be uncomfortable to stay in. So why bother?
+No bathroom, no water fountains, and not even a chair. This looked like it would be uncomfortable to stay in. So why bother? He wouldn't see Stella here yet.
+
+Maybe never again.
+
+No, he wouldn't think that way. They would find each other, somehow, no matter what.
 
 He stood near the inner doors and waited. The next time they opened, they took him.
 
@@ -56,7 +60,7 @@ They had him strip, took everything, and washed him down with a spray of water f
 
 Before he could finish speaking she rubbed a strange pink powder on him, which burned. "Don't touch this for about ten minutes. They'll delay your Transmission until then, but if you pick at it, it won't heal."
 
-"Uh, OK," James said. If the powder was what he thought it was---nanoheal, that pre-Collapse substance that the Perfects coveted, they had just wasted it on a man who was about to be zapped to another world.
+"Uh, OK," James said. If the powder was what he thought it was---nanoheal, that ultra-expensive substance that the Perfects coveted---they had just wasted it on a man who was about to be zapped to another world.
 
 Why?
 
@@ -70,7 +74,7 @@ James couldn't move.
 
 "In!"
 
-He struggled, but then they struck him with a pain baton and he nearly whited out from the pain. He clambered inside, and they shoved the drawer shut.
+He struggled, but then they struck him with a pain baton and he nearly whited out from the agony. He clambered inside, and they shoved the drawer shut.
 
 Inside was pitch-black, and he had no idea what would happen, let alone when or how. He wouldn't scream, he told himself. He would wait, wait, wait.
 

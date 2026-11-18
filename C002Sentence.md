@@ -10,7 +10,7 @@ The phrase still hit him in the gut, even if he had expected it. The Perfect mea
 
 As he walked out, the Perfect followed and came up right next to him. "Her trial is tomorrow. Unless she wants to _opt out._"
 
-James was tempted to hit him. But he ignored the Perfect and left.
+James was tempted to hit him again. But he ignored the Perfect and left.
 
 * * *
 
@@ -25,7 +25,7 @@ They did not waste time. He heard his comm ding when arriving back at his distri
 
 Tomorrow, then. He'd heard of people getting anywhere up to a month to sort out their affairs prior to being yanked out of them, but chances were the Perfect had pulled some strings to ruin his life further.
 
-What the nurck was the point of all this? he wondered. The Perfects were supposed to be exemplars of all that was good, but as far as he could tell they were the worst of the worst. So why did birth give them right to do anything?
+What the nurck was the point of all this? he wondered. The Perfects were supposed to be exemplars of all that was good, but as far as he could tell they were the worst of the worst. So why did birth give them the right to do anything?
 
 But there was no use thinking about it. It would cease mattering to him very soon, unless there were Perfects in the Destination.
 
@@ -33,9 +33,9 @@ He thought about trying to track down Stella, but he doubted he could. They live
 
 But now they were going to be separated. If he sent her an email, he would be shocked if it _wasn't_ monitored. Not that the Watchers ever didn't, but now they had a reason to especially spy on him.
 
-He arrived at his domicile, hewn out of rock with a worn metal. If there was one advantage to living in the shafts, as opposed to the surface, it was that the domiciles for even the medium-class Workers were relatively big.
+He arrived at his domicile, hewn out of rock with a worn metal door. If there was one advantage to living in the shafts, as opposed to the now unhabitable surface of Earth, it was that the domiciles for even the medium-class Workers were relatively big.
 
-He opened the door to see Mom wait. "How did---" she started, but stopped when he showed her the message on his comm. She groaned a cry, then hugged him tight. "Why? How could you do such a thing?"
+He opened the door to see Mom waiting. "How did---" she started, but stopped when he showed her the message on his comm. She groaned, then hugged him tight. "Why? How could you do such a thing?"
 
 James thought for a while. At last he said. "Because I loved her."
 
@@ -49,7 +49,7 @@ James didn't share her hope, but right then he wanted nothing else. He sat with 
 
 He went to the fridge and cracked open one of the pre-Collapse sodas they had bought as an investment. He poured it into two cups, then handed one to Mom. She drank it without a word.
 
-James drank the other. He could tell why they were once so desired that no one could know the secret recipe, lest more be made without the consent of the maker. For before the Collapse, private companies did whatever they wanted, not controlled by the Scale.
+James drank the other. He could tell why they were once so desired that no one could know the secret recipe, lest more be made without the consent of the maker. For, before the Collapse, private companies did whatever they wanted, not controlled by the Scale.
 
 The Scale that had so cruelly treated him.
 
@@ -59,7 +59,7 @@ But not for much longer, theoretically.
 
 He brought up the Nyctopedia article on Transmission. The world that criminals and the very unwanted Unwanted were sent to was less one world and more several worlds, stacked in a tower. But how to climb them, no one in this world knew except the Perfects. After all, if you reached the top... you would be released.
 
-No one had ever managed it, according to the rumors that had been passed around. But if there had been, surely the Perfects would be celebrating, to prove that their strange system of reformation was effective as it was claimed.
+No one had ever managed it, according to the rumors that had been passed around. But if there had been, surely the Perfects would be celebrating, to prove that their strange system of reformation was as effective as claimed.
 
 The knock at the door caused them both to look up. But the door wasn't hammered on or kicked down, which meant it was probably a friend. He opened it to find Stella, without a bonnet, waiting for him. "I heard," she said.
 

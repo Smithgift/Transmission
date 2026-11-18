@@ -4,7 +4,7 @@
 
 His trial was brief.
 
-That morning, when he looked in the mirror, James Algol had known his chance of aquittal was so low that it had no meaningful reality. Mom still remained insistent on him dressing his part. So he wore his best, cleanest suit over his still-thin frame, his Worker-dark hair perfectly combed, and his blue eyes still showing defiance. He could not fight them, but he would not give them satisfaction of seeing him afraid.
+That morning, when he looked in the mirror, James Algol had known his chance of acquittal was so low that it had no meaningful reality. Mom still remained insistent on him dressing his part. So he wore his best, cleanest suit over his still-thin frame, his short Worker-dark hair perfectly combed, and his blue eyes still showing defiance. He could not fight them, but he would not give them the satisfaction of seeing him afraid.
 
 Yet when he stepped into the cramped metal courtroom, he didn't see them even eager to see him suffer. The small crowd of Divine-class Perfects with their rainbow-wave hair looked nothing but bored. This was nothing more than a tedious formality for them.
 
@@ -14,7 +14,7 @@ Yet when he stepped into the cramped metal courtroom, he didn't see them even ea
 
 "Silence. You are out of order."
 
-James shut up. There would be an opportunity for him to speak, theoretically, but he could probably only say so much of the truth before he was forced to be silent. He would consider his words correctly.
+James shut up. There would be an opportunity for him to speak, theoretically, but he could probably only say so much of the truth before he was forced to be silent. He would consider his words carefully.
 
 The Perfect he had offended stood up with a mixture of boredom and malicious pleasure shining from his white eyes, and took the witness's stand. "Your Honor, I was simply minding my own business one day..."
 
@@ -22,7 +22,7 @@ The Perfect he had offended stood up with a mixture of boredom and malicious ple
 
 James had also been minding his own business. He and Stella were walking down the emergency stairs of Shaft 14 as they usually did. Plenty of room to be anonymous, away from prying eyes and the Watchers, when taking the hard way down. The rough walls held yellow molten-salt lamps, placed early in the Rebuilding and never replaced. They had built things to last, once upon a time, in a rejection of the ancient ways pre-Collapse. But then the Perfects had started raising the quotas.
 
-Stella had a bonnet over her Thinker-blond hair, which would normally have qualified her as an Unwanted, but that was the brilliance of it. No one would object to him having some "fun" with an Unwanted, when in truth it wasn't just "fun", and she was a high-class Thinker. Had they been seen together as their true ranks, one or both of them would be Transmitted with little question. The Scale had to maintained at all costs, after all, lest the Rebuilding end in another Collapse.
+Stella had a bonnet over her Thinker-blond hair, and the tightly-rapped white head covering would normally have qualified her as an Unwanted. But that was the brilliance of it. No one would object to him having some "fun" with an Unwanted, when in truth it wasn't just "fun", and she was a high-class Thinker. Had they been seen together as their true ranks, one or both of them would be Transmitted with little question. The Scale had to be maintained at all costs, after all, lest the Rebuilding end in another Collapse.
 
 They sat down near the edge of the steep pit, watching the lifts go by. "I wonder how long the emergency will last," James said.
 
@@ -34,7 +34,7 @@ They sat down near the edge of the steep pit, watching the lifts go by. "I wonde
 
 They could never marry, but James was always tempted to go all the way. Stella had refused, but that was ultimately OK. If either of them were discovered doing more than just this before they were assigned mates on the same Scale...
 
-"Oh, looky here," a voice with an audible sneer came from above. They looked up in shock to see a divine-class Perfect watching Stella with a leer. "I'll be taking her. You can have her afterwards."
+"Oh, looky here," a voice with an audible sneer came from above. They looked up in shock to see a Divine-class Perfect watching Stella with a leer. "I'll be taking her. You can have her afterwards."
 
 "No," James said, standing up.
 
@@ -60,7 +60,7 @@ The Perfect's version of the story was less full of lies than merely one contino
 
 "What have you to say?" the judge said.
 
-"I don't know what you want to hear," James said. "The truth? The truth is that the Perfect tried to molest, or worse, a Thinker, and is now covering it up with a---" As he suspected, his words stopped coming out of his mouth as the implant in his larynx stopped functioning.
+"I don't know what you want to hear," James said. "The truth? The truth is that the Perfect tried to molest, or worse, a Thinker, and is now covering it up with a l---" As he suspected, his words stopped coming out of his mouth as the implant in his larynx stopped functioning.
 
 Everyone knew that the Perfects, who could not lie, _did_ lie. But if anyone admitted that...
 
